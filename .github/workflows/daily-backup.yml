@@ -1,0 +1,67 @@
+name: Daily Website Backup
+
+on:
+  schedule:
+    # Runs every day at 3:00 AM UTC (4:00 AM Amsterdam time in winter, 5:00 AM in summer)
+    - cron: '0 3 * * *'
+  workflow_dispatch: # Allows manual triggering from GitHub Actions tab
+
+jobs:
+  backup:
+    runs-on: ubuntu-latest
+    permissions:
+      contents: write
+
+    steps:
+      - name: Checkout repository
+        uses: actions/checkout@v4
+
+      - name: Setup Ruby
+        uses: ruby/setup-ruby@v1
+        with:
+          ruby-version: '3.2'
+          bundler-cache: false
+
+      - name: Install Ruby dependencies
+        run: |
+          gem install nokogiri
+
+
+      - name: Make Ruby scripts executable
+        run: chmod +x *.rb
+
+      - name: Run backup workflow
+        run: |
+          echo "Step 1: Crawling website..."
+          ruby crawl-website.rb
+
+          echo "Step 2: Downloading and converting to Markdown..."
+          ruby download-and-convert.rb
+
+          echo "Step 3: Downloading images..."
+          ruby download-images.rb
+        continue-on-error: true
+
+      - name: Configure git
+        run: |
+          git config --local user.email "github-actions[bot]@users.noreply.github.com"
+          git config --local user.name "github-actions[bot]"
+
+      - name: Check for changes
+        id: check_changes
+        run: |
+          if [[ -n $(git status --porcelain) ]]; then
+            echo "changes=true" >> $GITHUB_OUTPUT
+          else
+            echo "changes=false" >> $GITHUB_OUTPUT
+          fi
+
+      - name: Commit changes
+        if: steps.check_changes.outputs.changes == 'true'
+        run: |
+          git add export/ links.txt
+          git commit -m "Daily website backup - $(date +'%Y-%m-%d %H:%M:%S')"
+
+      - name: Push changes
+        if: steps.check_changes.outputs.changes == 'true'
+        run: git push
