@@ -12,7 +12,7 @@ class Cleaner
 
   DIRECTORIES_TO_REMOVE = [
     "website_backup",
-    "export",
+    "docs",
     "markdown",
     "temp_crawl"
   ]

@@ -59,7 +59,7 @@ jobs:
       - name: Commit changes
         if: steps.check_changes.outputs.changes == 'true'
         run: |
-          git add export/ links.txt
+          git add docs/ links.txt
           git commit -m "Daily website backup - $(date +'%Y-%m-%d %H:%M:%S')"
 
       - name: Push changes

@@ -26,7 +26,7 @@ ruby clean.rb                 # Verwijder alle gegenereerde bestanden
 - `clean.rb` - Ruimt alle gegenereerde bestanden op voor een schone start
 
 ### Output Directories
-- `export/` - Markdown bestanden en afbeeldingen
+- `docs/` - Markdown bestanden en afbeeldingen (GitHub Pages compatible)
   - `*.md` - Geconverteerde Markdown pagina's
   - `images/[pagina-naam]/` - Afbeeldingen per pagina
   - `INDEX.md` - Overzicht van alle pagina's
@@ -64,14 +64,14 @@ bundle install
    - Converteert HTML naar Markdown met Nokogiri
    - Verwijdert navigatie elementen en buttons
    - Cleaned HTML entities (&nbsp; etc.)
-   - Output: `export/*.md`
+   - Output: `docs/*.md`
 
 3. **Download afbeeldingen**
    ```bash
    ruby download-images.rb
    ```
    - Scant Markdown bestanden voor externe afbeeldingen
-   - Download afbeeldingen naar `export/images/[pagina-naam]/`
+   - Download afbeeldingen naar `docs/images/[pagina-naam]/`
    - Update Markdown met lokale paden
 
 ### Opnieuw beginnen

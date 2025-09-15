@@ -6,8 +6,8 @@ require 'fileutils'
 require 'digest'
 
 class MediaDownloader
-  MARKDOWN_DIR = "export"
-  IMAGES_DIR = "export/images"
+  MARKDOWN_DIR = "docs"
+  IMAGES_DIR = "docs/images"
 
   def initialize
     @downloaded = 0

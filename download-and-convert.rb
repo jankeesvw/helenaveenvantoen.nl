@@ -10,7 +10,7 @@ require 'cgi'
 class DownloadAndConvert
   LINKS_FILE = "links.txt"
   BACKUP_DIR = "website_backup"
-  MARKDOWN_DIR = "export"
+  MARKDOWN_DIR = "docs"
 
   def initialize
     @converted = 0
