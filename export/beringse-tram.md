@@ -2,6 +2,11 @@
 
 > Bron: helenaveenvantoen.nl
 
+<audio controls>
+  <source src="images/beringse-tram/Hannes_Joosten2.mp3" type="audio/mpeg">
+  Your browser does not support the audio element.
+</audio>
+
 ### Afzet van groenten naar Venlo per stoomtramverbinding
 
 De tuinbouw in Helenaveen

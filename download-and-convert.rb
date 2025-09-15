@@ -188,6 +188,32 @@ class DownloadAndConvert
     # Extract text content
     content = []
 
+    # Check for audio elements first (debugging)
+    audio_elements = doc.css('audio')
+    puts "  🔍 Found #{audio_elements.length} audio elements" if audio_elements.length > 0
+
+    # Also check for Squarespace audio players (often in divs with data attributes)
+    data_audio_elements = doc.css('[data-url*=".mp3"], [data-url*=".wav"], [data-url*=".m4a"]')
+    puts "  🔍 Found #{data_audio_elements.length} data-url audio elements" if data_audio_elements.length > 0
+
+    data_audio_elements.each do |element|
+      audio_url = element['data-url']
+      if audio_url && !audio_url.empty?
+        puts "  🎵 Found audio URL: #{audio_url}"
+
+        # Make absolute URL if needed
+        if audio_url.start_with?('//')
+          audio_url = "https:#{audio_url}"
+        elsif audio_url.start_with?('/')
+          audio_url = "https://www.helenaveenvantoen.nl#{audio_url}"
+        end
+
+        # Create HTML audio element
+        audio_html = "<audio controls>\n  <source src=\"#{audio_url}\" type=\"audio/mpeg\">\n  Your browser does not support the audio element.\n</audio>"
+        content << audio_html
+      end
+    end
+
     # Process all relevant elements including images and audio
     doc.css('h1, h2, h3, h4, h5, h6, p, img, audio').each do |element|
       case element.name
@@ -264,6 +290,7 @@ class DownloadAndConvert
       .gsub(/\s+/, ' ')              # Normalize whitespace
       .strip                         # Remove leading/trailing whitespace
   end
+
 
   def create_index_file
     puts "\n📝 Creating index file..."
