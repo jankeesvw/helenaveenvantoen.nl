@@ -188,8 +188,8 @@ class DownloadAndConvert
     # Extract text content
     content = []
 
-    # Process all relevant elements including images
-    doc.css('h1, h2, h3, h4, h5, h6, p, img').each do |element|
+    # Process all relevant elements including images and audio
+    doc.css('h1, h2, h3, h4, h5, h6, p, img, audio').each do |element|
       case element.name
       when 'img'
         # Extract image source and alt text
@@ -206,6 +206,15 @@ class DownloadAndConvert
 
           content << "![#{alt}](#{src})"
         end
+      when 'audio'
+        # Embed the full HTML audio element in markdown
+        audio_html = element.to_html
+
+        # Make any relative URLs absolute
+        audio_html = audio_html.gsub(/src="\/\//, 'src="https://')
+        audio_html = audio_html.gsub(/src="\/([^\/])/, 'src="https://www.helenaveenvantoen.nl/\1')
+
+        content << audio_html
       when 'h1'
         text = clean_html_entities(element.text.strip)
         content << "# #{text}" unless text.empty?
