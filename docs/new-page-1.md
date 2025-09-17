@@ -22,6 +22,6 @@ VerhalenKunstwerken en gedenktekens in HelenaveenHelenaveen en de kolenmijn die 
 
 Kerk en schoolGeschiedenis van de oude en nieuwe begraafplaatsen van HelenaveenScholenDrie Kerkgemeenschappen in HelenaveenKloostersMemori - Behoud oude graven katholieke kerkhof
 
-VerveningFoto’s vervening
+VerveningJan Hermans vertelt hoe een veenderij te makenFoto’s vervening
 
 MultimediaAnsichtkaartenGeluidFoto’sFilmKrantenartikelenLinks
