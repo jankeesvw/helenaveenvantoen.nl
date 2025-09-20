@@ -52,6 +52,46 @@ Het hoog is den algemeenen naam van het nog vast, en de naam van het laag geeft 
 
 Figuur No. 1: Voorstelling eener veenderij | Joannes Hermans á Deurne – Neerkant 1871.
 
+![](images/veenbaas-jan-hermans/p02_verklaring_figuur_1_v.jpg)
+
+Bladzijde 2: Verklaring der figuur No. 1.
+
 Verklaring der figuur No. 1
 
-[20250916|HvdL | wordt vervolgd]
+De smalle vlakken, tusschen de blauwe lijnen, stellen de verschillende vaarwateren voor, als: 1o Het recht kanaal of groote vaart. 2o De onderscheiden wieken, welke het geheel veen door (200 ellen van elkander) moeten gemaakt worden. 3o De armen der wieken. 4o De kruiswieken. en 5o De hoofdwieken, welke in het kanaal uitloopen.
+
+De roode strepen verbeelden de raaislooten, welke 100 ellen van elkander gemaakt worden. De zwarte lijnen bedoelen de eigenlijke gribben, welke men 10 ellen van elkander legt. De langwerpige vlakken, tusschen deze lijnen, worden voortdurend bonken genoemd.
+
+![](images/veenbaas-jan-hermans/figuur_2.jpg)
+
+Figuur No. 2: Voorstelling eener in zwang zijnde veenderij | J. Hermans Neerkant 1871.
+
+![](images/veenbaas-jan-hermans/p02_verklaring_figuur_2_v.jpg)
+
+Bladzijde 2 : Verklaring van figuur No. 2.
+
+![](images/veenbaas-jan-hermans/p03_verklaring_figuur_2_v_u.jpg)
+
+Bladzijde 3 : [vervolg] Verklaring van figuur No. 2.
+
+Verklaring van figuur No. 2
+
+De breede, zwarte strepen stellen, even als de blauwe op figuur No. 1, de vaarwateren voor. De korte lijnen, in den vorm van kolommen, verbeelden de gribben en de zwarte streep door hun midden vervangt de roode lijn van fig. No. 1. Door de 7 opgaande en de 2 dwars liggende kolommen wordt het hoog of vast stuk veengrond aangeduid en de andere vlakken, waarop de roode strepen liggen, bedoelen het laag of uitgegraven veld. Door de roode lijnen langs de [blz. 3] vaarwateren worden de bermslooten en door de korte roode strepen, welke aan de lange verbonden zijn worden de grondgribben voorgesteld.
+
+![](images/veenbaas-jan-hermans/p03_gribben_of_slooten_maken_v.jpg)
+
+Bladzijde 3: Gribben of slooten maken.
+
+![](images/veenbaas-jan-hermans/p04_verklaring_gribben_maken_v_u.jpg)
+
+Bladzijde 4: [vervolg] Gribben of slooten maken.
+
+Gribben of slooten maken. 1.
+
+Dit is het eerste werk eener veenderij en wordt op de volgende wijze aangevangen: Eerst maakt men de raaislooten, waar men voornemens is het kanaal en de wieken te maken en tegelijkertijd de andere, welke op figuur 1e door roode lijnen zijn aangeduid. Daarna maakt men de gribben, op figuur 1o en 2o door zwarte strepen voorgesteld, van welke er 10 op elk bunder vallen. Op elk bunder aan den binnen hoek eener wiek, zooals aan de hoofd- en kruiswieken, heeft men 216 en op de andere bunders, met de raaislooten mede, 220 roeden gribben. De gribben, als ook de raaislooten, worden doorgaans op 65 of 70 duim breedte aangelegd en het eerste jaar 3 bollen of 60 duim diep gemaakt. Vervolgens worden de gribben ieder jaar, of zoo het veen niet te week is, twee malen in het jaar, telkenkeer twee steken verdiept, tot dat ze op schol veen 1 el, op middelmatig veen 1½ el en op het diep veen 1¾ el diep zijn. Het gribben-maken kost eerst 15 cts per 100 ellen van uitlijnen; vervolgens van [blz. 4] de drie eerste bollen 4½ cts per roode en daarna van elke twee steken te verdiepen 70 of 80 cts per 100 ellen.
+
+De gribben en ook de raaislooten behoeven echter niet aan hunne volle diepte te zijn, eer men met het kanaalgraven een begin maakt; het kan voldoende zijn met de raaislooten, waar men de vaarwateren maakt en de gribben, welke daar tegen aanschieten, op zekere lengt, b.v. 20 ellen, voorlopig tot één steek door de klot te maken, de rest kan men op 60 duim diepte laten liggen, tot dat de splitting is uitgegraven en de vaarwateren gemaakt zijn. Als we met het veenwerk wat nader bekend zijn, zullen wij nog eens tot het gribben-maken terug keeren, want hieraan is bijzonder veel gelegen.
+
+Moer-afkruien. 2.
+
+[20250919|HvdL | wordt vervolgd]
