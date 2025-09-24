@@ -70,28 +70,54 @@ Figuur No. 2: Voorstelling eener in zwang zijnde veenderij | J. Hermans Neerkant
 
 Bladzijde 2 : Verklaring van figuur No. 2.
 
+Verklaring van figuur No. 2
+
+De breede, zwarte strepen stellen, even als de blauwe op figuur No. 1, de vaarwateren voor. De korte lijnen, in den vorm van kolommen, verbeelden de gribben en de zwarte streep door hun midden vervangt de roode lijn van fig. No. 1. Door de 7 opgaande en de 2 dwars liggende kolommen wordt het hoog of vast stuk veengrond aangeduid en de andere vlakken, waarop de roode strepen liggen, bedoelen het laag of uitgegraven veld. Door de roode lijnen langs de
+
 ![](images/veenbaas-jan-hermans/p03_verklaring_figuur_2_v_u.jpg)
 
 Bladzijde 3 : [vervolg] Verklaring van figuur No. 2.
 
-Verklaring van figuur No. 2
-
-De breede, zwarte strepen stellen, even als de blauwe op figuur No. 1, de vaarwateren voor. De korte lijnen, in den vorm van kolommen, verbeelden de gribben en de zwarte streep door hun midden vervangt de roode lijn van fig. No. 1. Door de 7 opgaande en de 2 dwars liggende kolommen wordt het hoog of vast stuk veengrond aangeduid en de andere vlakken, waarop de roode strepen liggen, bedoelen het laag of uitgegraven veld. Door de roode lijnen langs de [blz. 3] vaarwateren worden de bermslooten en door de korte roode strepen, welke aan de lange verbonden zijn worden de grondgribben voorgesteld.
+[blz. 3] vaarwateren worden de bermslooten en door de korte roode strepen, welke aan de lange verbonden zijn worden de grondgribben voorgesteld.
 
 ![](images/veenbaas-jan-hermans/p03_gribben_of_slooten_maken_v.jpg)
 
 Bladzijde 3: Gribben of slooten maken.
 
+Gribben of slooten maken. 1.
+
+Dit is het eerste werk eener veenderij en wordt op de volgende wijze aangevangen: Eerst maakt men de raaislooten, waar men voornemens is het kanaal en de wieken te maken en tegelijkertijd de andere, welke op figuur 1e door roode lijnen zijn aangeduid. Daarna maakt men de gribben, op figuur 1o en 2o door zwarte strepen voorgesteld, van welke er 10 op elk bunder vallen. Op elk bunder aan den binnen hoek eener wiek, zooals aan de hoofd- en kruiswieken, heeft men 216 en op de andere bunders, met de raaislooten mede, 220 roeden gribben. De gribben, als ook de raaislooten, worden doorgaans op 65 of 70 duim breedte aangelegd en het eerste jaar 3 bollen of 60 duim diep gemaakt. Vervolgens worden de gribben ieder jaar, of zoo het veen niet te week is, twee malen in het jaar, telkenkeer twee steken verdiept, tot dat ze op schol veen 1 el, op middelmatig veen 1½ el en op het diep veen 1¾ el diep zijn. Het gribben-maken kost eerst 15 cts per 100 ellen van uitlijnen; vervolgens van
+
 ![](images/veenbaas-jan-hermans/p04_verklaring_gribben_maken_v_u.jpg)
 
 Bladzijde 4: [vervolg] Gribben of slooten maken.
 
-Gribben of slooten maken. 1.
-
-Dit is het eerste werk eener veenderij en wordt op de volgende wijze aangevangen: Eerst maakt men de raaislooten, waar men voornemens is het kanaal en de wieken te maken en tegelijkertijd de andere, welke op figuur 1e door roode lijnen zijn aangeduid. Daarna maakt men de gribben, op figuur 1o en 2o door zwarte strepen voorgesteld, van welke er 10 op elk bunder vallen. Op elk bunder aan den binnen hoek eener wiek, zooals aan de hoofd- en kruiswieken, heeft men 216 en op de andere bunders, met de raaislooten mede, 220 roeden gribben. De gribben, als ook de raaislooten, worden doorgaans op 65 of 70 duim breedte aangelegd en het eerste jaar 3 bollen of 60 duim diep gemaakt. Vervolgens worden de gribben ieder jaar, of zoo het veen niet te week is, twee malen in het jaar, telkenkeer twee steken verdiept, tot dat ze op schol veen 1 el, op middelmatig veen 1½ el en op het diep veen 1¾ el diep zijn. Het gribben-maken kost eerst 15 cts per 100 ellen van uitlijnen; vervolgens van [blz. 4] de drie eerste bollen 4½ cts per roode en daarna van elke twee steken te verdiepen 70 of 80 cts per 100 ellen.
+[blz. 4] de drie eerste bollen 4½ cts per roode en daarna van elke twee steken te verdiepen 70 of 80 cts per 100 ellen.
 
 De gribben en ook de raaislooten behoeven echter niet aan hunne volle diepte te zijn, eer men met het kanaalgraven een begin maakt; het kan voldoende zijn met de raaislooten, waar men de vaarwateren maakt en de gribben, welke daar tegen aanschieten, op zekere lengt, b.v. 20 ellen, voorlopig tot één steek door de klot te maken, de rest kan men op 60 duim diepte laten liggen, tot dat de splitting is uitgegraven en de vaarwateren gemaakt zijn. Als we met het veenwerk wat nader bekend zijn, zullen wij nog eens tot het gribben-maken terug keeren, want hieraan is bijzonder veel gelegen.
 
+![](images/veenbaas-jan-hermans/p04_moer_afkruinen_v_u.jpg)
+
+Bladzijde 4: Moer-afkruien.
+
 Moer-afkruien. 2.
 
-[20250919|HvdL | wordt vervolgd]
+Dit wordt gedaan, waar men het kanaal en wieken maakt. Eer men hiermede begint, moet men de diepte van het veen gepeild hebben om te weten, hoe breed het moer moet weggeruimd worden. Op zekere plaatsen, waar het zwart veen of klot 1,75 el en het vaal ruim 1 el diep zit, laat men het vaal-moer doorgaans, aan weerskanten van de raaisloot, 10 ellen breed wegruimen, alsdan heeft men, nadat de klot er uitgegraven is, genoegzame ruimte om den
+
+![](images/veenbaas-jan-hermans/p05_moer_afkruien_v.jpg)
+
+Bladzijde 5: [vervolg] Moer-afkruien.
+
+[blz. 5] ondergrond, dat is het zand, dat men uit den bodem graaft, te bergen en de dijken, aan weerskanten, krijgen eene matige hoogte. Op ondiepe plaatsen (scholveen) is het gemakkelijker en wel zoo voordeelig vooraf het vaal 2, 4 of 6 ellen breeder te laten wegruimen, dan later het zand op die smalle ruimte, misschien hooger dan het oppervlak van den bovengrond, te moeten ophoopen. Op dergelijke plaatsen echter zou men zich kunnen redden, al was het moer slechts 10 ellen breed weggeruimd, met bij de splitting, aan beide zijden één of twee kuilen te laten uitgraven; maar op andere plaatsen, waar de klot 2 ellen of meer en het vaal hoogstens 1 el dik zit, mag het moer niet breeder worden weggenomen dan 6, 7 of 8 ellen, want als men het vaal te breed wegneemt, is men later genoodzaakt grond bij te kruien om de dijken hoog genoeg te maken.
+
+Het moer afkruien kost doorgaan 8 cts per kubiek el, dat is op 40 ellen ver weg te brengen; 30 ellen afstand wordt gerekend tegen 7, 20 ellen tegen 6, 10 ellen tegen 5 en 60 ellen tegen 10 cts per kub. el., gewoonelijk 15 of 20 duim dik gelijkelijk over het veld verdeeld, doch aan de bochten, hoofd- en kruiswieken is men genoodzaakt het vaal veel dikker dan 20 duim over het veld te storten; dit is niet alleen lastig later bij het turf-graven, maar het
+
+![](images/veenbaas-jan-hermans/p06_moer_afkruien_v_u.jpg)
+
+Bladzijde 6: [vervolg] Moer-afkruien.
+
+[blz. 6] kost ook 10 cts per bank, dat is 36 fl per bunder meer van afbonken. In de bochten, maar vooral in de hoofd- en kruiswieken laat men thans, in het Helena-veen, een gedeelte van het vaal tot turf graven tegen 20 of 22 cts per stok, dat is ruim 9 cts per kub. el. Deze turf heeft, wel is waar, eene geringe waarde, doch kan de kosten van den arbeidsloon al licht opleveren.
+
+Nadere begrooting der kosten van moer-afkruien voor het nieuw kanaal 3
+
+[20250923|HvdL | wordt vervolgd]
