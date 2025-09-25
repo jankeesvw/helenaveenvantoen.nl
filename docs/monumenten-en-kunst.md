@@ -284,7 +284,7 @@ Overigens kloppen de aantallen die genoemd worden niet helemaal. (zie De Kerkraz
 
 ![](images/monumenten-en-kunst/1.jpg)
 
-![](images/monumenten-en-kunst/2.jpg)
+![](https://images.squarespace-cdn.com/content/v1/5d43f94f93ac690001e770a7/b40d5c0b-ff05-4324-a3f7-114a98caf04c/2.jpg)
 
 Aan de Soemeersingel in Helenaveen stond van 1970 tot 1982 de Openbare Lagere School Zonnedauw. De school werd gebouwd omdat er in de bestaande school (de "nieuwe school") geen plek meer was voor niet-katholieke leerlingen. Die school werd vanaf 1970 volledig katholiek.
 

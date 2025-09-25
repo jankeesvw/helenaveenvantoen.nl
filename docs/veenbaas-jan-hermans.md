@@ -4,7 +4,11 @@
 
 ### Hoe een veenderij te maken en turf te graven volgens Joannes Hermans
 
-Jan Hermans uit de Neerkant was voor 1875 veenbaas bij de Maatschappij Helenaveen. Later is hij veenbaas geworden bij de veenderij van de gemeente Deurne. In 1871 heeft hij uitgebreid beschreven hoe een nieuwe veenderij aan te leggen en te ontgraven. In zijn verhaal neemt hij ook allerlei informatie op over bijvoorbeeld de in een veenderij gebruikte termen, zoals dagwerk en stok, en over de maten van de turven. Die laatste waren afhankelijk van de herkomst van de turfstekers, zoals de Dedemsvaarders, de Duitsers en de Nieuwkerkers. En wat voor gereedschap gebruikten ze?
+![](images/veenbaas-jan-hermans/300px-Johannes_Hermans__281845-1897_29_veendirecteur.jpg)
+
+Jan Hermans (1845-1897). (Foto: Deurnewiki.nl
+
+Jan Hermans uit de Neerkant was voor 1875 veenbaas bij de Maatschappij Helenaveen. Later is hij veenbaas en directeur geworden bij de veenderij van de gemeente Deurne. In 1871 heeft hij uitgebreid beschreven hoe een nieuwe veenderij aan te leggen en te ontgraven. In zijn verhaal neemt hij ook allerlei informatie op over bijvoorbeeld de in een veenderij gebruikte termen, zoals dagwerk en stok, en over de maten van de turven. Die laatste waren afhankelijk van de herkomst van de turfstekers, zoals de Dedemsvaarders, de Duitsers en de Nieuwkerkers. En wat voor gereedschap gebruikten ze?
 
 Hermans rekent alles door in geld om zo een betrouwbare begroting voor de aanleg van een nieuwe veenderij te verkrijgen. Lees hier wat Hermans in zijn schriftje schreef.
 
