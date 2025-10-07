@@ -122,6 +122,56 @@ Bladzijde 6: [vervolg] Moer-afkruien.
 
 [blz. 6] kost ook 10 cts per bank, dat is 36 fl per bunder meer van afbonken. In de bochten, maar vooral in de hoofd- en kruiswieken laat men thans, in het Helena-veen, een gedeelte van het vaal tot turf graven tegen 20 of 22 cts per stok, dat is ruim 9 cts per kub. el. Deze turf heeft, wel is waar, eene geringe waarde, doch kan de kosten van den arbeidsloon al licht opleveren.
 
+![](images/veenbaas-jan-hermans/p06_begroting_moer_afkruien_v_u.jpg)
+
+![](images/veenbaas-jan-hermans/p07_begroting_moer_afvoeren_v_u.jpg)
+
+Bladzijde 6 en 7: Nadere begrooting der kosten van moer-afkruien voor het nieuw kanaal 3.
+
 Nadere begrooting der kosten van moer-afkruien voor het nieuw kanaal 3
 
-[20250923|HvdL | wordt vervolgd]
+Kort aan den draai der Helena-veensche vaart licht het veen nauwelijks 1 el boven den waterspiegel van ’t kanaal de klot zit er ongeveer 1,70 en het vaal ruim ½ el; verder op naar de waterlossing of zoerloop heeft men minder klot en dikker vaal, doch het zou voldoende kunnen zijn met het moer aan weerszijden 7 ellen breedte weg te ruimen; op middelbare plaatsen zou men 6 of 7 en aan de hoofd- en kruiswieken 9 cts per kub. el moeten geven. Bij het wieken graven aan de Oostzijde van het Nieuw kanaal, die er in alle geval gemaakt moeten worden, zoo er ooit eene veenderij wordt aangelegd, zal men hier en daar zandheuvels, van ongelijke breedte, aantreffen, alwaar weinig of geen klot en dik vaal zit; voor en achter deze zandheuvels [blz. 7] zit de klot somtijds zeer diep en de kwaliteit van veenstof is er doorgaans het best.
+
+![](images/veenbaas-jan-hermans/p07_slichten_v_u2.jpg)
+
+Bladzijde 7: Slichten. 4.
+
+Slichten. 4
+
+Nadat het moer is afgekruid, moet het geslicht, dat is gelijk gemaakt en aangetrapt worden. Dit moet in het voorjaar, eer het moer te hard opdroogt, gedaan worden. Gewoonlijk geeft men van ’t slichten 10 cts per vierkante roede, dat is 10 fl het bunder; hoe dikker men het vaal gestort en dus minder veld bedekt heeft, hoe minder het slichten, op zekere lente van het kanaal, zal kosten. Gelijktijdig met het moer-afkruien moet er gezorgd worden, dat de blootgewerkte klot boven water blijft. Wanneer men vooraf de gribben één steek in de klot gemaakt heeft, zal het klot-bovenwaterhouden weinig of niets kosten.
+
+![](images/veenbaas-jan-hermans/p07_turfgraven_uit_de_splitting_v_u.jpg)
+
+Bladzijde 7: Turf-graven uit de splitting. 5.
+
+Turf-graven uit de splitting. 5
+
+Vroeger toen men, omdat men geene goede waterlossingen had, niet dieper kon laten graven dan 8 of 10 klim, liet men in het Helena-veen, even als aan de Dedemsvaart, de splittingen door Bovenlandsche ploegen 8 of 10 diep uitgraven. De Bovenlandsche ploegen bestonden destijds uit 10 man, als: 2 gravers, 1 haker, 1 karzetter, 3 kruiers en 2 bonkers, die tevens met den tienden man, de andere arbeiders op gestelde uren moesten aflossen en des noods holhaken, kruien of iets anders doen. De turf, welke de
+
+![](images/veenbaas-jan-hermans/p08_turfgraven_uit_de_splitsing_v.jpg)
+
+Bladzijde 8: [vervolg] Turf-graven uit de splitting. 5.
+
+[blz. 8] Duitschers graven is omtrent 41 duim lang, 12¼ duim breed en ruim 14½ duim dik; men heeft er van 320 onder den stok en 14400 in het dagwerk. Deze turf kostte van graven, ls de Duitschers zich met hun tien man konden behelpen, 10,55 fl; in de rechte splittingen konden zij zich redden, maar in de bochten, hoofd- en kruiswieken, waar ze somtijds 3 ofm 4 hakers noodig hadden, moesten er mannen, bijkruiers genaamd, aangesteld en afzonderlijk tegen een gulde per dagwerk betaald worden; op dergelijke plaatsen heb ik wel eens gezien, dat ze behalven hun eigen volk nog 7 bijkruiers tot zich hadden.
+
+De klot, die, nadat de ploegen 8 of 10 klim hadden afgegraven, nog op den bodem bleef zitten, moest boven water gehouden en later uitgepolderd worden. Deze polderturf werd gegraven naar 19800 turven in het dagwerk. Bij het polderen groef men den klot niet breeder weg, dan het vaarwater moste worden, de walkanten, aan weerskanten, bleven op de eerste diepte liggen om later met zand en modder tot dijken aan te vullen. Ik kan niet zeggen, hoeveel de polderturf per dagwerk van graven kostte, doch ik weet wel, dat er weinig goeds, slechts stukken en brokken van te recht kwamen.
+
+Later groeven de Bovenlanders de splittingen in een
+
+![](images/veenbaas-jan-hermans/p09_turfgraven_uit_de_splitsing_v.jpg)
+
+Bladzijde 9: [vervolg] Turf-graven uit de splitting. 5.
+
+[blz. 9] keer tot op het zand toe uit en thans laat men ze door Inlandsche gespannen, uit 3 of 5 man bestaande uitgraven. Deze maken zich eene stellagie van planken en kruien met hunne wagens in de splitting, recht voor de bank, waar ze voor den graver in het bereik staan de 6 of 7 bovenste klimmen er op te werpen.
+
+Men betaalt hun tegen 9,30 per dagwerk, als ze den turf 10 stokken ver moeten wegbrengen; voor elke 5 stokken verder geeft men hun 1 fl meer per dagw. en van de verwaterde of bevroren klot er af te scheppen 20 cts per bonk. De Inlanders graven de splittingen achtervolgens tot op den bodem uit, op de diepste en weeke plaatsen laten ze echter 1, 2 of 3 banketten, elk 4 turven breed, tegen den vaste kant zitten, of wel ze graven de walkuilen niet dieper dan 12 klim, opdat de kanten niet zouden afscheuren. Als de klot gemiddeld 12 klim diep zit, graven de Inlanders, te naasten bij 30 dagw. turf (ploegwerk) uit eene splitting van 100 ellen lengte, en dan komen er, aan weerskanten op elken bonk 67½ stok turf staan; op 25 ellen lengte van den bonk kunnen 35 stokken turf gezet worden. In de bochten en vooral in de hoofd- en kruiswieken moeten de splittingen breeder en naast de hoeken rondvormig worden uitgegraven; men graaft er dus eene zekere hoeveelheid turf meer uit eene zelfde lengte en men heeft er minder veld om den turf te zetten; daarom moet
+
+![](images/veenbaas-jan-hermans/p10_uitgraven_uit_de_splitting_v_u.jpg)
+
+Bladzijde 10: [vervolg] Turf-graven uit de splitting. 5.
+
+[blz. 10] er de klot soms 80, 100 of 120 ellen ver worden weggekruid.
+
+Op dusdanige plaatsen echter zou men het werk kunnen vergemakkelijken en de kosten verminderen met: Een jaar de splitting van het kanaal, het ander jaar die der hoofdwiek in het derde jaar de armen der wieken te laten uitgraven.
+
+[20251006|HvdL | wordt vervolgd]
