@@ -1,11 +1,11 @@
 # Helenaveen van Toen - Markdown Versie
 
-Geconverteerd op: 2025-10-13 03:30:49
+Geconverteerd op: 2025-10-14 03:25:54
 Bron: https://www.helenaveenvantoen.nl
 
 ## Statistieken
 
-- Totaal pagina's: 126
+- Totaal pagina's: 127
 - Conversie mislukt: 0
 
 ## Beschikbare Pagina's
@@ -100,6 +100,7 @@ Bron: https://www.helenaveenvantoen.nl
 - [new-page-1](new-page-1.md)
 - [new-page-2](new-page-2.md)
 - [new-page-3](new-page-3.md)
+- [nieuws](nieuws.md)
 - [ontstaan-helenaveen](ontstaan-helenaveen.md)
 - [oorlog-1](oorlog-1.md)
 - [oorlog](oorlog.md)
