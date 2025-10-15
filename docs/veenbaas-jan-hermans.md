@@ -6,7 +6,7 @@
 
 ![](images/veenbaas-jan-hermans/300px-Johannes_Hermans__281845-1897_29_veendirecteur.jpg)
 
-Jan Hermans (1845-1897). (Foto: Deurnewiki.nl
+Jan Hermans (1845-1897). (Foto Deurnewiki.nl)
 
 Jan Hermans uit de Neerkant was voor 1875 veenbaas bij de Maatschappij Helenaveen. Later is hij veenbaas en directeur geworden bij de veenderij van de gemeente Deurne. In 1871 heeft hij uitgebreid beschreven hoe een nieuwe veenderij aan te leggen en te ontgraven. In zijn verhaal neemt hij ook allerlei informatie op over bijvoorbeeld de in een veenderij gebruikte termen, zoals dagwerk en stok, en over de maten van de turven. Die laatste waren afhankelijk van de herkomst van de turfstekers, zoals de Dedemsvaarders, de Duitsers en de Nieuwkerkers. En wat voor gereedschap gebruikten ze?
 
@@ -174,4 +174,42 @@ Bladzijde 10: [vervolg] Turf-graven uit de splitting. 5.
 
 Op dusdanige plaatsen echter zou men het werk kunnen vergemakkelijken en de kosten verminderen met: Een jaar de splitting van het kanaal, het ander jaar die der hoofdwiek in het derde jaar de armen der wieken te laten uitgraven.
 
-[20251006|HvdL | wordt vervolgd]
+![](images/veenbaas-jan-hermans/p10_het_verdere_kanaal_maken_v_u.jpg)
+
+Bladzijde 10: Het verdere kanaal-maken. 6.
+
+Het verdere kanaal-maken. 6
+
+Onmiddellijk, nadat de slitting is uitgegraven, kan men tot het verdere kanaal-maken overgaan. Het recht kanaal of groote vaart make men liefst 10 en de wieken 8 ellen breed. In het Helena-veen worden de verschillende vaarwateren zoo diep gemaakt, dat ze, het water aan peil zijnde, nagenoeg 2 ellen water houden; de telu wordt meest van één op één of iets steiler gelegd en van moer- en zandbrokken samengezet. De modder en brasserij, welke er van het turf-graven is achtergebleven, wordt achter den telu in de walkuilen geworpen en de zandgrond, die men uit den bodem graaft, er boven op. Overal, waar men, ten minste ½ el zand uit den bodem graaft, kan men genoegzaam sterke dijken maken, doch waar het veen zoo diep gezeten heeft, dat men weinig of geen zand opdelft, is men genoodzaakt zooveel zandgrond van andere plaatsen aan te voeren, dat men daarmee, inzonderheid den aardenwal, ½ el dik kan bekleeden; dit zand aanvoeren kost
+
+![](images/veenbaas-jan-hermans/p11_het_verdere_kanaal_maken_v_u.jpg)
+
+Bladzijde 11: [vervolg] Het verdere kanaal-maken. 6.
+
+[blz. 11] wel eens 16 cts per kub. el en het zand uit den bodem graven, naar het gelang der diepte, van 10 tot 16 cts per kubiek el.
+
+Kort nadat men het vaarwater vol water heeft gezet, is het zeer goed den telu met een lijst van graszoden te voorzien. Deze graszoden steekt men verschillend van breedte, doch meestal ½ el lang; zij worden met houten pinnen zoodanig in den telu vastgemaakt, dat het water, 20 duim boven of beneden peil zijnde, altijd tegen deze graszoden, die weldra begroeien, kan aanspoelen.
+
+Na het verrichten dezer werkzaamheden, moet er overal, waar de walkuilen geheel zijn vol geworpen, het vaal 1 stok breed worden weggeruimd; op andere plaatsen, waar de walkuilen gedeeltelijk vrij of de dijken te laag gebleven zijn, laat men zooveel vaal naar beneden werken, dat de dijken hoog genoeg en de walkuilen vol zijn. Van het vaal naar beneden werken geeft men doorgaans 2 cts en van ’t wegkruien 10 cts per kubiek el.
+
+![](images/veenbaas-jan-hermans/p11_turfgraven_op_het_hoog_v_u.jpg)
+
+Bladzijde 11: Turf-graven op het hoog. 7.
+
+Turf-graven op het hoog. 7
+
+Nadat de splittingen uitgegraven en de vaarwateren gemaakt zijn, worden er telken jaar 2 of 3 kuilen, elk een stok breed, van het vast stuk uitgegraven. Men graaft langs de vaarwateren op en nadert alzoo met iedere kuil 2,45 verder tot de raaislooten, op figuur 1e door roode en op figuur 2e door zwarte lijnen aangeduid.
+
+![](images/veenbaas-jan-hermans/p12_turfgraven_op_het_hoog_v.jpg)
+
+Bladzijde 12: [vervolg] Turf-graven op het hoog. 7
+
+[blz. 12] Zoolang men in het laag, beneden-veld of uitgegraven veen, geene genoegzame ruimte heeft om den turf te zetten, zet men deze op het hoog of boven-veld te drogen en graaft ploegwerk. Deze turf heeft verschillende jaren 10,55 fl per dagwerk van graven gekost. Eene goede Bovenlandsche ploeg, uit 9 man bestaande, graaft daags ruim 2 dagen turf, en zij worden tot het turf-graven op het hoog bijzonder voorbehouden, want men heeft in het Helena-veen, bij gebrek aan Duitschers, meermalen beproeft dergelijke ploegen, om den turf op het hoog te graven, uit Inlandsche arbeiders samen te rapen, maar men heeft tot hieraan nog nimmer twee gravers bij eene ploeg gevonden, die de zwaarte van den arbeid een zomer-tijd konden verduren en zolang zij het doorstonden, was het doorgaans met een dag[werk] daags besloten. De Duitschers graven, op 12 klim diepte, jaarlijks 2 kuilen, op 8 klim 3 en op 6 klim diepte, als het noodig is, 4 kuilen; op 12 klim bonken zij de tweede, op 8 klim de derde en op 6 klim de 4de kuil, maar het beneden-veld laten ze liggen, zoo het neergeworpen wordt; dit veld slichten kost later, voor elke kuil, 5 cts per bonk. Als men in een zelfde jaar, op 12 klim, 3 kuilen laat graven, kost de turf 1 fl meer per dag[werk] van graven. Als men 4 kuilen op het hoog gegraven heeft, kan er
+
+![](images/veenbaas-jan-hermans/p13_turfgraven_in_het_hoog_v_u.jpg)
+
+Bladzijde 13: [vervolg] Turf-graven op het hoog. 7
+
+[blz. 13] eene kuil in het laag geplaatst worden; het 2de en 3de jaar dus kan men 3 kuilen en het 4de jaar 4 kuilen laten graven, zonder dat het graven meer, dan naar gewoonte, kost. Er moeten dus ten minste 6 en somtijds 8 kuilen op het hoog gezet worden; van 1 kuil, waar de klot 12 klim diep zit, graven de ploegen uit eene klink van 100 ellen of 10 banken lengt, ongeveer 4 dag[werk] turf.
+
+[20251014|HvdL | wordt vervolgd]
