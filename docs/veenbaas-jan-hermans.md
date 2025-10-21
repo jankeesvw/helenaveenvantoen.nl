@@ -96,7 +96,7 @@ Dit is het eerste werk eener veenderij en wordt op de volgende wijze aangevangen
 
 Bladzijde 4: [vervolg] Gribben of slooten maken.
 
-[blz. 4] de drie eerste bollen 4½ cts per roode en daarna van elke twee steken te verdiepen 70 of 80 cts per 100 ellen.
+[blz. 4] de drie eerste bollen 4½ cts per roede en daarna van elke twee steken te verdiepen 70 of 80 cts per 100 ellen.
 
 De gribben en ook de raaislooten behoeven echter niet aan hunne volle diepte te zijn, eer men met het kanaalgraven een begin maakt; het kan voldoende zijn met de raaislooten, waar men de vaarwateren maakt en de gribben, welke daar tegen aanschieten, op zekere lengt, b.v. 20 ellen, voorlopig tot één steek door de klot te maken, de rest kan men op 60 duim diepte laten liggen, tot dat de splitting is uitgegraven en de vaarwateren gemaakt zijn. Als we met het veenwerk wat nader bekend zijn, zullen wij nog eens tot het gribben-maken terug keeren, want hieraan is bijzonder veel gelegen.
 
@@ -152,9 +152,9 @@ Vroeger toen men, omdat men geene goede waterlossingen had, niet dieper kon late
 
 Bladzijde 8: [vervolg] Turf-graven uit de splitting. 5.
 
-[blz. 8] Duitschers graven is omtrent 41 duim lang, 12¼ duim breed en ruim 14½ duim dik; men heeft er van 320 onder den stok en 14400 in het dagwerk. Deze turf kostte van graven, ls de Duitschers zich met hun tien man konden behelpen, 10,55 fl; in de rechte splittingen konden zij zich redden, maar in de bochten, hoofd- en kruiswieken, waar ze somtijds 3 ofm 4 hakers noodig hadden, moesten er mannen, bijkruiers genaamd, aangesteld en afzonderlijk tegen een gulde per dagwerk betaald worden; op dergelijke plaatsen heb ik wel eens gezien, dat ze behalven hun eigen volk nog 7 bijkruiers tot zich hadden.
+[blz. 8] Duitschers graven is omtrent 41 duim lang, 12¼ duim breed en ruim 14½ duim dik; men heeft er van 320 onder den stok en 14400 in het dagwerk. Deze turf kostte van graven, ls de Duitschers zich met hun tien man konden behelpen, 10,55 fl; in de rechte splittingen konden zij zich redden, maar in de bochten, hoofd- en kruiswieken, waar ze somtijds 3 of 4 hakers noodig hadden, moesten er mannen, bijkruiers genaamd, aangesteld en afzonderlijk tegen een gulde per dagwerk betaald worden; op dergelijke plaatsen heb ik wel eens gezien, dat ze behalven hun eigen volk nog 7 bijkruiers tot zich hadden.
 
-De klot, die, nadat de ploegen 8 of 10 klim hadden afgegraven, nog op den bodem bleef zitten, moest boven water gehouden en later uitgepolderd worden. Deze polderturf werd gegraven naar 19800 turven in het dagwerk. Bij het polderen groef men den klot niet breeder weg, dan het vaarwater moste worden, de walkanten, aan weerskanten, bleven op de eerste diepte liggen om later met zand en modder tot dijken aan te vullen. Ik kan niet zeggen, hoeveel de polderturf per dagwerk van graven kostte, doch ik weet wel, dat er weinig goeds, slechts stukken en brokken van te recht kwamen.
+De klot, die, nadat de ploegen 8 of 10 klim hadden afgegraven, nog op den bodem bleef zitten, moest boven water gehouden en later uitgepolderd worden. Deze polderturf werd gegraven naar 19800 turven in het dagwerk. Bij het polderen groef men den klot niet breeder weg, dan het vaarwater moest worden, de walkanten, aan weerskanten, bleven op de eerste diepte liggen om later met zand en modder tot dijken aan te vullen. Ik kan niet zeggen, hoeveel de polderturf per dagwerk van graven kostte, doch ik weet wel, dat er weinig goeds, slechts stukken en brokken van te recht kwamen.
 
 Later groeven de Bovenlanders de splittingen in een
 
