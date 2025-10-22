@@ -210,6 +210,34 @@ Bladzijde 12: [vervolg] Turf-graven op het hoog. 7
 
 Bladzijde 13: [vervolg] Turf-graven op het hoog. 7
 
-[blz. 13] eene kuil in het laag geplaatst worden; het 2de en 3de jaar dus kan men 3 kuilen en het 4de jaar 4 kuilen laten graven, zonder dat het graven meer, dan naar gewoonte, kost. Er moeten dus ten minste 6 en somtijds 8 kuilen op het hoog gezet worden; van 1 kuil, waar de klot 12 klim diep zit, graven de ploegen uit eene klink van 100 ellen of 10 banken lengt, ongeveer 4 dag[werk] turf.
+[blz. 13] eene kuil in het laag geplaatst worden; het 2de en 3de jaar dus kan men 3 kuilen en het 4de jaar 4 kuilen laten graven, zonder dat het graven meer, dan naar gewoonte, kost. Er moeten dus ten minste 6 en somtijds 8 kuilen op het hoog gezet worden; van 1 kuil, waar de klot 12 klim diep zit, graven de ploegen uit eene klink van 100 ellen of 10 bonken lengte, ongeveer 4 dag[werk] turf.
 
-[20251014|HvdL | wordt vervolgd]
+![](images/veenbaas-jan-hermans/p13_turfgraven_in_het_laag_v_u.jpg)
+
+Bladzijde 13: Turf-graven in het laag. 8
+
+Turf-graven in het laag. 8
+
+De turf, die men op het uitgegraven veld te drogen zet, wordt algemeen groot- of waldijkerwerk genoemd; men graaft hem omtrent 43 duim lang, 13½ duim breed en ruim 15½ duim dik; men telt van dezen turf 288 onder den stok en 12960 in een dagwerk.
+
+Deze turf wordt gegraven, zoowel door Inlandsche als Bovenlandsche gespannen, die meest uit 2 man bestaan, en kost 9,30 fl van graven. De gespan-gravers of waldijkers moeten op 12 klim diepte de tweede, op 8 klim de derde en op 6 klim de 4de kuil afbonken en overal, op welke plaats ze ook graven, 2 kuilen slichten en lichtstukken laten vallen. Het afbonken wordt gerekend tegen 50 cts per bonk, waar de klot 10 of 12 klim diep zit en tegen 60 cts, als de klot 6 of minder klim zit; aan de hoofd- en kruiswieken geeft men 60 of 70 cts per bonk. De Waldijkers graven uit elke kuil ruim 17 stokken turf, dat is: 170 stok uit eene klink. Nadat de ploegen 6 kuilen op het hoog
+
+![](images/veenbaas-jan-hermans/p14_turfgraven_in_het_laag_v_u.jpg)
+
+Bladzijde 14: [vervolg] Turf-graven in het laag. 8
+
+[blz. 14] gegraven hebben, kunnen de waldijkers nog 15 jaren, dat is 30 kuilen in het laag graven. Een goed Bovenlandsch gespan graaft van Paaschen tot Sint Peter en Paulus (29 juli) 30 tot 34 dagwerken turf, terwijl de Inlandsche, die vroeger beginnen en later eindigen, meest beneden 25 dagen blijven.
+
+![](images/veenbaas-jan-hermans/p14_Nieuwkerkerwerk_v_u.jpg)
+
+Bladzijde 14: Het Nieuwkerkerwerk. 9
+
+![](images/veenbaas-jan-hermans/p15_Nieuwkerkerwerk_v_u.jpeg)
+
+Bladzijde 15: [vervolg] Het Nieuwkerkerwerk. 9
+
+Het Nieuwkerkerwerk. 9
+
+Dit soort van turf wordt gegraven door arbeiders uit het Groot-hertogdom Oldenburg. Zij begeven zich met 7 werklieden bij elkander en graven den turf 44½ duim lang, 151/3 duim breed en 16¾ duim dik; men telt van deze 256 turven onder den stok en 11520 in het dagwerk. De Oldenburgers zetten, even als de Waldijkers, hun turf in het laag en krijgen 11,20 fl per dagwerk; zij graven zelden meer dan 2 kuilen in een jaar en bonken van de tweede kuil de helft en van de eerste niets, maar het slichten en lichtstukken afstooten doen zij voor de beide kuilen. N.B. Deze drie genoemde soorten van turf, als: ploegwerk, waldijkerwerk en nieuwkerkerwerk, wordt algemeen Fabrieksturf genoemd, omdat hij aan de Hollandsche steenfabriekanten verkocht wordt, die er hunne tichelovens mede stoken. De verschillende werkzaamheden, die er na het graven met den turf plaats hebben, kost voor de drie genoemde soorte van turf evenveel per dagwerk; het inschepen en het [blz. 15] vervoer wordt naar de ton berekend.
+
+[20251021|HvdL | wordt vervolgd]
