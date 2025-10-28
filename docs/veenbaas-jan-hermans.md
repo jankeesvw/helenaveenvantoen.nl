@@ -240,4 +240,38 @@ Het Nieuwkerkerwerk. 9
 
 Dit soort van turf wordt gegraven door arbeiders uit het Groot-hertogdom Oldenburg. Zij begeven zich met 7 werklieden bij elkander en graven den turf 44½ duim lang, 151/3 duim breed en 16¾ duim dik; men telt van deze 256 turven onder den stok en 11520 in het dagwerk. De Oldenburgers zetten, even als de Waldijkers, hun turf in het laag en krijgen 11,20 fl per dagwerk; zij graven zelden meer dan 2 kuilen in een jaar en bonken van de tweede kuil de helft en van de eerste niets, maar het slichten en lichtstukken afstooten doen zij voor de beide kuilen. N.B. Deze drie genoemde soorten van turf, als: ploegwerk, waldijkerwerk en nieuwkerkerwerk, wordt algemeen Fabrieksturf genoemd, omdat hij aan de Hollandsche steenfabriekanten verkocht wordt, die er hunne tichelovens mede stoken. De verschillende werkzaamheden, die er na het graven met den turf plaats hebben, kost voor de drie genoemde soorte van turf evenveel per dagwerk; het inschepen en het [blz. 15] vervoer wordt naar de ton berekend.
 
-[20251021|HvdL | wordt vervolgd]
+![](images/veenbaas-jan-hermans/p15_Kleinwerk_of_burgerturf_v_u.jpg)
+
+Bladzijde 15: Het kleinwerk of Burgerturf. 10
+
+Het kleinwerk of Burgerturf. 10
+
+Aldus genoemd, omdat hij aan de Burgers verkocht wordt, die denzelven gebruiken om aan het vuur of in de kachel te stoken. De Burgerturf wordt gegraven, waar het veen bij uitstek vet en droog zijnde zeer brokkelachtig is; men bezigt er Inlandsche werklieden toe, die voor het grootwerk zwak zijn, en men betaalt hun stok: waar ze 10 of meer klim graven, geeft men hun 23 cts, 6 of 8 klim 25 cts, 5 klim 27, 4 klim 29 cts en 3 klim 32 cts per stok. Het moer-afbonken en het veld slichten moeten zij zelf doen. Het kleinwerk wordt gevormd naar 396 turven onder den stok en 19800 in een dagwerk, dat hier 50 stokken is; elke turf heeft eene lengte van 35 duim, eene breedte van 11 en eene dikte van ruim 13 duimen. Het droog maken van dezen turf kost 150 cts en het vuren soms 100, soms 150 cts per dagw[erk].; zelden behoeft hij omringd te worden, maar bij het vuren blijft de onderste laag der ringen op het veld om te drogen en deze voetturven worden later achter de hoopen of bulten gezet, tegen 20 cts het dagwerk. Het inladen van dezen turf kost 2,50 fl meer per 1000 tonnen, dan de fabrieksturf.
+
+![](images/veenbaas-jan-hermans/p16_kadastreren_turf_v.jpg)
+
+Bladzijde 16: Notering. 11 [of: Hoe de turf na het graven, gekadastreerd wordt]
+
+![](images/veenbaas-jan-hermans/p17_kadastreren_v_u.jpg)
+
+Bladzijde 17: [vervolg] Notering. 11 [of: Hoe de turf na het graven, gekadastreerd wordt]
+
+[blz. 16] Notering. 11
+
+Kort nadat de turf gegraven is, wordt hij door Heeren Veen-bazen of hunne Inspecteurs, op het veld, nagemeten en aldus opgeschreven:
+
+![](images/veenbaas-jan-hermans/p16_tabellen.jpg)
+
+N.B. In de eerste, 2de, 3de, 4de, 5de en 6de kolom schrijve men den naam der werklieden om hun, desnoods, bij eene volgende werkzaamheid te kunnen naspeuren, of zij hun werk wel goed hebben afgemaakt, want, om goed te zijn, moet het voldoende wezen, dat de Inspecteur eener Veenderij [blz. 17] zijne werklieden alle twee of drie dagen eens komt opzoeken.
+
+![](images/veenbaas-jan-hermans/p17_verschillende_werkzaamheden_mbt_turf_v_u.jpg)
+
+Bladzijde 17: De verschillende werkzaamheden, die er, na het graven, met den turf moeten plaats hebben. 12
+
+De verschillende werkzaamheden, die er, na het graven, met den turf moeten plaats hebben. 12
+
+Eerst moet de turf in ringen of hallen gezet, dat is gedroogd worden; hiervan geeft men soms 150, doch meest 137 ½ cts per dagw[erk]. Nadat deze ringen een wijl gestaan hebben, moeten ze omgezet worden, tegen 90 cts per dagw[erk]; eindelijk worden de ringen in hoop of bulten gezet, dit noemt men vuren; de arbeiders van de Dedems-vaart krijgen hiervan 120 of 125 cts en de Inwoners één gulde per dagwerk. Een goed arbeider van de Dedems-vaart vuurt 1 ½ en de Inwoners hoogst één dagwerk daags.
+
+Van turf inladen geeft men aan de gewone arbeiders, die meest kinderen of meisjes zijn, van den fabrieksturf 8 en van den burgerturf 10,50 fl per 1000 tonnen en aan volwassen werklieden, die er des noods toe gebezigd worden, geeft men soms 2 fl per 1000 tonnen meer. Wanneer de turf, bij het inschepen, moet gekruid of aangevoerd worden, dan geeft men voor elke hand, dat is 40 of 45 ellen, een gulde per 1000 tonnen. Stukken en brokken, kleiner dan ½ turf, vallen buiten den fabrieksturf en moeten met de natte heelen, die er bij nat weer veel van de hoopen komt, opgemaakt en somtijds weggeruimd worden, hiervan geeft men 4, 5, 7 tot 8 cts per kubiek el.
+
+[20251027|HvdL | wordt vervolgd]
