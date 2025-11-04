@@ -274,4 +274,30 @@ Eerst moet de turf in ringen of hallen gezet, dat is gedroogd worden; hiervan ge
 
 Van turf inladen geeft men aan de gewone arbeiders, die meest kinderen of meisjes zijn, van den fabrieksturf 8 en van den burgerturf 10,50 fl per 1000 tonnen en aan volwassen werklieden, die er des noods toe gebezigd worden, geeft men soms 2 fl per 1000 tonnen meer. Wanneer de turf, bij het inschepen, moet gekruid of aangevoerd worden, dan geeft men voor elke hand, dat is 40 of 45 ellen, een gulde per 1000 tonnen. Stukken en brokken, kleiner dan ½ turf, vallen buiten den fabrieksturf en moeten met de natte heelen, die er bij nat weer veel van de hoopen komt, opgemaakt en somtijds weggeruimd worden, hiervan geeft men 4, 5, 7 tot 8 cts per kubiek el.
 
-[20251027|HvdL | wordt vervolgd]
+![](images/veenbaas-jan-hermans/p18_waarde_turf_en_vervoer_v.jpg)
+
+Bladzijde 18: De waarde van den turf en het vervoer. 13
+
+![](images/veenbaas-jan-hermans/p19_waarde_turf_en_vervoer_v_u.jpg)
+
+Baldzijde 18: [vervolg] De waarde van den turf en het vervoer. 13
+
+[blz. 18] De waarde van den turf en het vervoer. 13
+
+Uit een dagwerk turf (ploegwerk) komen, droog zijnde, nagenoeg 350 en uit het Waldijker- en Nieuwkerkerwerk ongeveer 400 tonnen turf. Deze veronderstelling is op het volgende gegrond: In 1865 of 1866, toen de Oldenburgers het eerste jaar in het Helena-veen turf gegraven hadden, liet men twee even groote hoopen, de eene Waldijker- de andere Nieuwkerkerwerk, afbreken en overtonnen, om te weten hoeveel turven men van elke soort moest hebben om de ton te vullen.
+
+Van ’t Waldijkerwerk had men 32 en van ’t Nieuwkerkerwerk 29 turven in de ton; het Waldijkerwerk bleek dus het voordeligst te zijn. Op alle plaatsen echter heeft men niet even veel getal turven in de ton, want de turf krimpt overal niet even veel weg met drogen.
+
+Het vervoer van den drogen turf kost in het Helena-veen, als dit door vracht-schippers geschieden moet, 5 cts per ton; in 1861 of 1862 verschenen in het H[elena-]v[een] veel schippers, meest Schravemoerenaars, die op vracht steeds voeren, eerst kregen ze 6, later 5 cts per ton, waarvoor zij den turf naar Thiel, Druten, Gorcum, Dordrecht, Den Brielle enz. aan de steenovens moesten brengen; het uitlossen bleef tevens buiten hunne rekening.
+
+[blz. 19] De Burgerturf wordt meest aan particulier schippers verkocht, die het vervoer op eigen kosten afmaken.
+
+![](images/veenbaas-jan-hermans/p19_waterleidingen_v_u.jpg)
+
+Bladzijde 19: Waterlijdingen. 14
+
+Waterlijdingen. 14
+
+Nadat er 3 of 4 kuilen op het hoog gegraven zijn, moeten er langs alle vaarwateren, aan weerskanten, bermslooten (op figuur 2o door roode lijnen voorgesteld) gemaakt worden, die ergens op een beek, b.v. de zoerloop, afwatering hebben door welke het water in de Aa wordt afgeleid. Eer men in het H[elena-]v[een] de waterlossing (zoerloop) en bermslooten had, kon men de klot niet dieper graven dan 8 of 10 klim en daarbij moest men, vooral in de voor-kuil, breede dammen laten zitten. In de laatst gegraven kuil houdt men jaarlijks eene waterlossing, van deze waterlossing naar de bermsloot maakt men grondgribben (op figuur 2o door roode strepen aangeduid). Door deze grondgribben wordt het water uit de klot-kuil in de bermslooten afgeleid; men maakt ze doorgaans 100 ellen van alkander. Het maken der grondgribben kost doorgaans 3 en ’t bermslooten-maken 5 cts per kub[ieke]. el; ze moeten alle 2 of 3 jaren van modder, die er in valt, en van gras, dat langs de kanten groeit, gezuiverd worden; het waterlossing maken, door de klot-kuil, kost 5 soms 8, ook wel eens 12 cts per bonk.
+
+[20251103|HvdL | wordt vervolgd]
