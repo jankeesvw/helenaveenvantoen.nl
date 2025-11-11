@@ -1,11 +1,11 @@
 # Helenaveen van Toen - Markdown Versie
 
-Geconverteerd op: 2025-11-10 03:36:48
+Geconverteerd op: 2025-11-11 03:33:12
 Bron: https://www.helenaveenvantoen.nl
 
 ## Statistieken
 
-- Totaal pagina's: 130
+- Totaal pagina's: 131
 - Conversie mislukt: 0
 
 ## Beschikbare Pagina's
@@ -115,6 +115,7 @@ Bron: https://www.helenaveenvantoen.nl
 - [pierre-kartner-vader-abraham-overleden](pierre-kartner-vader-abraham-overleden.md)
 - [pietertje-de-vries](pietertje-de-vries.md)
 - [pijlpunt](pijlpunt.md)
+- [rectoraat](rectoraat.md)
 - [riek-van-esseveldt-snieder](riek-van-esseveldt-snieder.md)
 - [riki-bakker](riki-bakker.md)
 - [riky-bakker-mijn-werk-op-de-tuinderij](riky-bakker-mijn-werk-op-de-tuinderij.md)
