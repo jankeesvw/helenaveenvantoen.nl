@@ -300,4 +300,44 @@ Waterlijdingen. 14
 
 Nadat er 3 of 4 kuilen op het hoog gegraven zijn, moeten er langs alle vaarwateren, aan weerskanten, bermslooten (op figuur 2o door roode lijnen voorgesteld) gemaakt worden, die ergens op een beek, b.v. de zoerloop, afwatering hebben door welke het water in de Aa wordt afgeleid. Eer men in het H[elena-]v[een] de waterlossing (zoerloop) en bermslooten had, kon men de klot niet dieper graven dan 8 of 10 klim en daarbij moest men, vooral in de voor-kuil, breede dammen laten zitten. In de laatst gegraven kuil houdt men jaarlijks eene waterlossing, van deze waterlossing naar de bermsloot maakt men grondgribben (op figuur 2o door roode strepen aangeduid). Door deze grondgribben wordt het water uit de klot-kuil in de bermslooten afgeleid; men maakt ze doorgaans 100 ellen van alkander. Het maken der grondgribben kost doorgaans 3 en ’t bermslooten-maken 5 cts per kub[ieke]. el; ze moeten alle 2 of 3 jaren van modder, die er in valt, en van gras, dat langs de kanten groeit, gezuiverd worden; het waterlossing maken, door de klot-kuil, kost 5 soms 8, ook wel eens 12 cts per bonk.
 
-[20251103|HvdL | wordt vervolgd]
+![](images/veenbaas-jan-hermans/p20_dove_gaten_v_u.jpg)
+
+Bladzijde 20: De dove gaten. 15
+
+[blz. 20]
+
+De dove gaten. 15
+
+Als men de vaarwateren maakt, gelijk figuur 1o en 2o voorstellen, dan moeten er 200 ellen van het rechte kanaal verwijderd, b.v. tusschen de armen der 3de en 4de wiek, doofgaten gemaakt worden om overal het veen gelijktijdig te kunnen uitgraven. Men laat er het vaal doorgaans 4 ellen breed wegruimen, waardoor men ruimte krijgt voor eene kuil en bermsloot te gelijk; het moer-afkruien kost hier 5 cts per kub. el. De plaatsen, waar genoemde doofgaten moeten gemaakt worden, zijn op figuur 1o met eene roode en blauwe streep naast elkander aangeduid.
+
+![](images/veenbaas-jan-hermans/p20_nader_van_het_gribben_maken_v_u.jpg)
+
+Bladzijde 20: Nader van het gribben-maken. 16
+
+Nader van het gribben-maken. 16
+
+Op bladz. 3 en 4 hebben we de kosten van gribben-maken opgegeven; thans rest ons nog te zeggen, hoe de gribben, hunne richting aangaande, moeten aangelegd worden: Eerst make men de raaisloot voor het recht kanaal of groote vaart en al de raaislooten, welke in dezelfde richting loopen, moeten evenwijdig aan elkander zijn. De andere raaislooten, welke men dwars over de eersten legt, moeten ook evenwijdig aan elkander gemaakt worden.
+
+Het komt er juist zoo zeer niet op aan of alle vlakken, van vier slooten omgegeven, kwadraten zijn, maar ze moeten
+
+![](images/veenbaas-jan-hermans/p21_nader_van_gribben_maken_v.jpg)
+
+Bladzijde 21: [vervolg] Nader van het gribben-maken. 16
+
+[blz. 21] zoodanig aangelegd worden, dat alle vier de hoeken elk 90 graden bevatten. Het gribben- en vooral het raaislooten-uitlijnen mag dus elkeen niet toevertrouwd worden, want door onbedrevenheid, door onachtzaamheid en nog meer door oolijkheid zou men het, in schijn, merkelijk kunnen vergrooten. Wanneer men de slooten aanlegde, dat alle vlakken twee scherpe hoeken, elk van 60o, en twee stompe hoeken, ieder van 120o, hadden, dan zou eene veenderij b.v. van 8400 bunder, in schijn 9100 bunder meten.
+
+Ter opheldering van deze gezegden, nemen we onzen toevlucht tot de aftekening van twee regelmatige vierhoeken met gelijke zijden: [zie de vierhoeken in het manuscript]
+
+Deze beide vlakken hebben elk 3 Ned[erlandsche] duim zijden, het 1ste houdt 9, het ander 8 ¼ vierk. Duim. Voor een stuk grond, bouw- of weiland b.v., is het onverschillig, als ’t goed gemeten wordt, hoe hetzelve gelegen is; maar voor een veenderij, die tot turf gegraven moet worden, is dit geheel anders, want de zichtbare schuinheid der raaislooten gaat over aan de gribben, van de gribben aan de kuilen en van de klotkuilen aan den
+
+![](images/veenbaas-jan-hermans/p22_nader_van_gribben_maken_v.jpg)
+
+Bladzijde 22: [vervolg] Nader van het gribben-maken. 16
+
+[blz. 22] turf waaraan het nauwelijks zichtbaar noch meetbaar is. Om dit nader op te helderen zullen we door afb. 2o tien lijnen trekken, gribben voorstellende: [zie de vierhoek in het manuscript]
+
+Aan deze gribben of bonken is de schuinheid minder zichtbaar dan aan de raaislooten en uit dusdanige bonken kan even zoveel getal turven gegraven worden a;s uit andere vierkante vlakken met rechte hoeken, die 10 vierkante roeden groot zijn; daar blijft het nog niet bij: Op elken bonk worden doorgaans 3 slagen, elk een stok breed, dat zijn samen 51 rijen turf, te drogen gezet; men zou den turf dus bijna 1/10 dunner mogen graven, wanneer men met de schijnbare maat te vreden was. Hierbij dient nog gezegt te worden, dat de voorzeide schuinheid der bonken van het raaislooten maken niet alleenlijk afhangt, want door een kwadraat stuk grond kunnen de gribben schuin en door een scherphoekig stuk kunnen ze recht geleid worden.
+
+[zie de vierhoeken in het manuscript] Om de gribben zóó aan te leggen, dat alle bonken even breed vallen zou zeer moeielijk zijn, doch als de eerste bonk 10, de andere 11 en een derde 9 ellen breed is, dan neemt men ze door elkander en ’t gedijt den werkman noch de Heeren Veenbazen tot voor- of nadeel.
+
+[20251111|HvdL | wordt vervolgd]
