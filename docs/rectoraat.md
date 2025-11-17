@@ -112,7 +112,7 @@ In datzelfde jaar vond Bijnen dat de tijd rijp was om Helenaveen tot een zelfsta
 
 De bisschop stemde in met zijn verzoek. Op 1 maart 1891 werd Helenaveen officieel een zelfstandige parochie, en rector Bijnen werd haar eerste pastoor.
 
-Hij bleef tot zijn dood in 1896, op 63-jarige leeftijd, in Helenaveen.Sinds de komst van Jan van de Griendt en zijn pioniers waren toen 38 jaar verstreken. Het rectoraat had 34 jaar bestaan voordat Helenaveen eindelijk kerkelijk zelfstandig werd.
+Hij bleef tot zijn dood in 1896, op 58-jarige leeftijd, in Helenaveen.Sinds de komst van Jan van de Griendt en zijn pioniers waren toen 38 jaar verstreken. Het rectoraat had 34 jaar bestaan voordat Helenaveen eindelijk kerkelijk zelfstandig werd.
 
 ![](images/rectoraat/bijnen.jpg)
 
