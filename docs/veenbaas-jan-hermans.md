@@ -340,4 +340,46 @@ Aan deze gribben of bonken is de schuinheid minder zichtbaar dan aan de raaisloo
 
 [zie de vierhoeken in het manuscript] Om de gribben zóó aan te leggen, dat alle bonken even breed vallen zou zeer moeielijk zijn, doch als de eerste bonk 10, de andere 11 en een derde 9 ellen breed is, dan neemt men ze door elkander en ’t gedijt den werkman noch de Heeren Veenbazen tot voor- of nadeel.
 
-[20251111|HvdL | wordt vervolgd]
+![](images/veenbaas-jan-hermans/p23_gereedschappen_en_materialen_v.jpg)
+
+Bladzijde 23: De verschillende gereedschappen en materialen waarvoor de Heeren Veenbazen gehouden zijn te zorgen. 17
+
+[blz. 23]
+
+De verschillende gereedschappen en materialen waarvoor de Heeren Veenbazen gehouden zijn te zorgen. 17
+
+Bij het gribben-maken vordert elke werkman 1 lijnijzer en bonkschop of modderschop met een stikdraad van 50 ellen, benevens eene hoeveelheid sparren tot jalons.
+
+- Bij het moerafkruien elk één kruiwagen.
+
+- Bij het turf-graven uit de splittingen heeft elk gespan van 5 manschappen: ten minste 4 kruiwagen, 2 stikkers, 2 opleggers, 1 haakschop, 1 viertandige vork, 1 modderschop, 1 lijnijzer, 1 bonkschop en veeltijds ruim 300 voet kruiplanken.
+
+Bij het turfgraven op het hoog heeft elke ploeg: 4 of 5 kruiwagen, 2 stikkers, 2 opleggers, 1 haakschop, 1 vork, lijnijzer, bonk- en modderschop enz.
+
+Bij het turf-graven in het laag heeft elk gespan 3 kruiwagen, 1 stikker, 1 oplegger, 1 vork, 1 bonk- en modderschop, 1 lijnijzer, 1 haak om veld te slichten enz.; bij het graven heeft elk gespan, zooveel als iedere ploeg een hamer en eene lijn, band-touw, van 25 ellen noodig.
+
+Bij het verdere kanaal-maken zorgt men voor: jalons, tonmolens, zandstikken, kruiwagens en planken.
+
+Bij het turf-vuren en inladen heeft elke arbeider een kruiwagen.
+
+In de waterlossingen gebruikt men: lijnijzers, bonkschoppen en eusvaten.
+
+![](images/veenbaas-jan-hermans/p24_aanleg_en_inrichting_veenderij_v.jpg)
+
+Bladzijde 24: Over den aanleg of inrichting eener Veenderij. 18
+
+[blz. 24]
+
+Over den aanleg of inrichting eener Veenderij. 18
+
+Het recht kanaal of groote vaart eener veenderij dient op 100 of 200 ellen langs de eene of andere limiet, of wel midden door het veen gemaakt te worden. Als men het kanaal midden door het veen maakt, dan graaft men aan weerskant, 200 ellen van elkander, zoo genaamde wieken; gelijk figuur No 1 voorstelt. (Men kan hoofdwieken maken of elke wiek afzonderlijk in het kanaal leiden; de kosten zijn de zelfden.) Als men het kanaal op 200 ellen na langs eene grensscheiding maakt, dan behoeft men slechts aan de eene zijde wieken te graven, zoo als op figuur No 2 staat afgeteekend. Deze inrichting is verweg de beste, omdat men aan den eenen kant geene bruggen noodig heeft.
+
+De aangewezene lijn, voor het nieuw Kanaal, is omdat ze recht is, eene uiterst mooie richting voor eene bijzondere scheepsvaart, maar tot het kanaal eener veenderij mocht ze wel anders zijn, want ze nadert aan de Oostzijde, op elke 100 ellen 30 metres verder tot de limiet van het Helena-veen, en aan de Westzijde verwijdert ze zich evenmatig zoo veel van de kuilen, doe door de Gemeentenaren tot eigen gerief zijn uitgestoken. De gansche aanleg der Veenderij zou dus eene zichtbare schuinheid moeten aannemen; op sommige plaatsen zou het te ver zijn om te bereiken
+
+![](images/veenbaas-jan-hermans/p25_aanleg_en_inrichting_veenderij_v.jpg)
+
+Bladzijde 25: [vervolg] Over den aanleg of inrichting eener Veenderij. 18
+
+[blz. 25] en toch de moeite niet om wieken te maken. Gemakshalven zou men het kanaal voor de nieuwe Veenderij moeten maken op een paar 100 ellen na langs de kuilen, dan kon men, aan de Westzijde een goede rijweg maken, die tevens in eene veenderij noodwendig is. Aan de andere zijde, waar men de wieken graaft, zou men zich met kleine vonders kunnen behelpen. Tot uitwatering der bermslooten zou men op het einde der wieken, dat is: langs de limiet van het Helena-veen, eene groote waterlossing kunnen maken of die van het H[elena-]V[een] gebruiken en het water in de Aa leiden door de thans bestaande waterlossing, de Zoerloop, die zeer waarschijnlijk ten eeuwigen dagen zal moeten bestaan. Gelijktijdig met het kanaal-graven moet men het vaal en de klot laten wegruimen, waar men, vroeg of laat, Hoofdwieken of wieken, die in het kanaal uitloopen, maken moet, want als men aan weerskanten van het kanaal, b.v. 100 ellen, heeft weggegraven, dan moet men wieken maken; het vaal dat men vroeger afgebonkt, en de grond, die men op de dijken gebracht heeft moet dan weggeruimd worden, men zou het afbonken, dat men voorheen gedaan had, niet alleen toegeven, maar het nooit verwerkte veen kost ook 2 cts per kub. el minder van wegkruien, als datgene, welk eens of meermalen is omgezet.
+
+[20251117|HvdL | wordt vervolgd]
