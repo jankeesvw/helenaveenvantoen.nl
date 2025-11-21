@@ -6,7 +6,7 @@
 
 AlgemeenPagina met laatste bijdragen en wijzigingen InleidingColofon, bronnen en links
 
-Allerlei nieuwsEen natte maar gezellige werkmiddag voor MemoriHerdenking 80 jaar bevrijding HelenaveenAnna Hoogendoorn, Grond van bestaanHans van Neerven, de houten Bok “Janske Pardoel”Pierre Kartner overleden (8 november 2022)
+Allerlei nieuwsherdenking gesneuvelde bevrijders HelenaveenEen natte maar gezellige werkmiddag voor MemoriHerdenking 80 jaar bevrijding HelenaveenAnna Hoogendoorn, Grond van bestaanHans van Neerven, de houten Bok “Janske Pardoel”Pierre Kartner overleden (8 november 2022)
 
 HelenavenersJules de CorteRekenwonder Anton van den Hurk
 

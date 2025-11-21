@@ -22,12 +22,34 @@ The commander of the 15th (Scottish Infantry division) soon reckoned the fact th
 
 DODENHERDENKING BRITSE EREBEGRAAFPLAATS MIERLO
 
+![](images/het-mijnen-drama-bij-de-bevrijding/Mierlo_compilatie.jpg)
+
+Mierlo, Geldropseweg 68 | adoptiegravenmierlo.nl
+
 Op 4 mei herdenken we in Helenaveen tijdens de nationale Dodenherdenking onze oorlogsslachtoffers. Sinds enkele jaren worden ook door een groepje ‘Helenaveners’ de gesneuvelde Britse bevrijders van Helenaveen herdacht, zowel op 4 mei als op 20 november. De Cameronians sneuvelden namelijk op 20 november 1944 in Helenaveen in de strijd tegen de Duitse bezetter, waardoor Helenaveen op 21 november 1944 haar vrijheid terugkreeg. De jongste Cameronians waren 18 jaar, de oudste 34. Zij gaven hun leven voor onze vrijheid. Ook de herinnering aan hen moet levend gehouden worden door herdenking. Tien hebben hun laatste rustplaats gekregen op de Britse Erebegraafplaats aan de Geldropseweg te Mierlo. Ze liggen naast of dicht bij elkaar begraven. Een rust op de Britse Erebegraafplaats in Mook aan de Groesbeekseweg. Mocht u in de buurt zijn, sta dan even stil bij hun graven. Hun namen zijn:
 
 ![](images/het-mijnen-drama-bij-de-bevrijding/lijst_gesneuvelde_Britse_jongens.jpg)
+
+Midden 2025 is de stichting Adoptiegraven Mierlo opgericht die het mogelijk maakt om een of meerdere graven van gesneuvelde Britse militairen op de erebegraafplaats te Mierlo te adopteren. Het Helenaveen van Toen heeft alle tien de graven van de gesneuvelde bevrijders van Helenaveen geadopteerd.
 
 ![Mei 2021 Mierlo](images/het-mijnen-drama-bij-de-bevrijding/graf_Mierlo.jpg)
 
 Mei 2021 Mierlo
 
-| HvdL | 20210513
+![](images/het-mijnen-drama-bij-de-bevrijding/Mierlo_compilatie_1.jpg)
+
+21 november 2024 herdenking bij 80 jaar bevrijding Helenaveen.
+
+DODENHERDENKING BRITSE EREBEGRAAFPLAATS MOOK
+
+![](images/het-mijnen-drama-bij-de-bevrijding/Mook_compilatie.jpg)
+
+Mook, Groesbeekseweg 21
+
+Van de elf in Helenaveen op 20 november 1944 gesneuvelde Britse bevrijders is Ernest Leach (31 jaar) als enige begraven op de erebegraafplaats te Mook.
+
+![](images/het-mijnen-drama-bij-de-bevrijding/IMG_1381.JPG)
+
+Herdenking 16 november 2025 Mook
+
+| HvdL | 20210513/20251120

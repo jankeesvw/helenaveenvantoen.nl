@@ -2,16 +2,34 @@
 
 > Bron: helenaveenvantoen.nl
 
-### Herdenking gesneuvelde bevrijders van Helenaveen
+### Eerbetoon aan gesneuvelde Engelse militairen.
 
-### op 20 november 2025
+20 november 2025
 
-![](images/new-page-4/Oorlogsherdenking.jpg)
+Al enkele jaren bezoeken leden van Het Helenaveen van Toen op 20 november, de dag van de bevrijding van Helenaveen, de erebegraafplaats van Engelse soldaten in Mierlo.Sinds dit jaar is het mogelijk om graven te adopteren. Als Het Helenaveen van Toen hebben wij deze gelegenheid aangegrepen en de tien graven van onze bevrijders geadopteerd.
 
-Vorig jaar hebben we op de erebegraafplaats te Mierlo een indrukwekkende bloemenhulde gebracht aan de Britse jongens die hun leven hebben gegeven voor de bevrijding van Helenaveen. Dat was bij gelegenheid van de 75e herdenking.
+Bij aankomst werden we hartelijk ontvangen door het adoptiecomité van de begraafplaats. Bijzonder was dat er ook twee militairen aanwezig waren die zelf hebben gediend in hetzelfde regiment als de gevallenen die wij herdenken.
 
-Op 20 november a.s. gaan we dat weer doen.
+![](images/new-page-4/Naamloos_7.jpg)
 
-Tijd: 14:00 uur Locatie: Geldropseweg 68, 5731 AD Mierlo
+Aanwezig namens de Stichting Adoptiegraven Mierlo: Marnica Schipper, Lt Col Steven Neville (Engeland), Capt Jon Evett (Engeland) Namens Helenaveen: Gerard Veldhuizen, Jan van Woezik,Gratje van der Zwaan Mede organisator Hans van de Laarschot kon door gezondheidsreden helaas niet aanwezig zijn.
 
-Iedereen die ons wil vergezellen tijdens deze herdenking is van harte welkom.Mocht u geen eigen vervoer hebben, stuur even een berichtje naar: info@helenaveenvantoen.nlEen van de chauffeurs uit Helenaveen neemt dan contact op met u.Mvg,Gerard Veldhuizennamens Het Helenaveen van Toen
+![](images/new-page-4/2.jpg)
+
+Bij elk van de graven werd een roos gelegd.
+
+![](images/new-page-4/4.jpg)
+
+![](images/new-page-4/Naamloos_5.jpg)
+
+Hans van de Laarschot heeft vorige week een bloemetje gelegd op het graf van Ernest Leach in Mook.
+
+![](images/new-page-4/6.jpg)
+
+Capt Jon Evett las tijdens het leggen van de bloemen dit gedicht voor.
+
+![](images/new-page-4/7.jpg)
+
+Na afloop is aan de mensen uit Mierlo ons boek Helenaveen, bezet en bevrijd aangeboden.
+
+NB. De Rozen komen van bloemisterij van de Bekerom uit Liessel. Toen ze hoorden waarvoor ze waren, mochten we ze niet betalen, waarvoor onze hartelijke dank.
