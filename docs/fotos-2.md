@@ -25,3 +25,7 @@ Jan van de Griendt
 ![](images/fotos-2/adrianus_bos.jpg)
 
 Adrianus Bos (1874-1931) van 1906 tot 1931 directeur van Maatschappij Helenaveen.
+
+![](images/fotos-2/zondagschool.jpeg)
+
+Kinderen zondagschool Collectie Mieke Schonewille
