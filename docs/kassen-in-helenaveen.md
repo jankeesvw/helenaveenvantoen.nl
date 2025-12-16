@@ -20,11 +20,11 @@ Oude Peelstraat – Antoon van Teefelen: bloemen, 1965–2015: anjers
 
 Oude Peelstraat – Leo Vercoulen: blauwe-bessen stek
 
-Helenastraat – Leo Veldhuizen
+Helenastraat – Leo Veldhuijzen
 
 Helenastraat – Cobus Maessen
 
-Helenastraat – Henk van Mullecom
+Helenastraat – Henk van Mullekom
 
 Helenastraat – Cor van de Werf
 
@@ -34,11 +34,11 @@ Soemeersingel – Mat van Grunsven
 
 Soemeersingel – Harry Arts: bloemen
 
-Soemeersingel – Has Lagarde
+Soemeersingel – Theodoor/Johan Lagarde
 
 Soemeersingel – Jan Bakker: sla, augurken, komkommers
 
-Soemeersingel – Albert van Teefelen
+Soemeersingel – Albert van Teeffelen
 
 Soemeersingel – Hannes Joosten: 1968–1985 opvolger Jan Jonker
 
@@ -48,7 +48,7 @@ Soemeersingel – Grad Jansen: actief 1968–1985
 
 Soemeersingel – Roel Vermeulen: actief 1958–2010, opvolger Wijnand Vermeulen
 
-Soemeersingel – Linnard Joosten: actief 1965–1995 opvolger Jan Arts
+Soemeersingel – Leonard Joosten: actief 1965–1995, opvolger Jan Arts
 
 Soemeersingel – Geert Schonewille:
 
@@ -60,11 +60,11 @@ Soemeersingel – Toon van de Mortel: rododendrons
 
 Zinkskeslaan – Jan Bakker jr.
 
-Zinkskeslaan – Gerrit van de Werf
+Zinkskeslaan – Gerrit van der Werf
 
-Zinkskeslaan – Jo van de Werf
+Zinkskeslaan – Jo van der Werf
 
-Zinkskeslaan – Rinus van Mullecom
+Zinkskeslaan – Rinus van Mullekom
 
 Zinkskeslaan – Jan Philipsen
 
@@ -80,19 +80,19 @@ Lagebrugweg – Rein van Woezik: rolbak
 
 Lagebrugweg – Theo Wijnen
 
-Rector Nuijtsstraat – Willem Esseveld
+Rector Nuijtsstraat – Willem van Esseveldt
 
 Rector Nuijtsstraat – Cor van Horen: opvolger Ger van Horen
 
-Centurioweg – Wim van Mullecom
+Centurioweg – Wim van Mullekom
 
-Centurioweg – Toon van Mullecom
+Centurioweg – Toon van Mullekom
 
-Grashoekseweg – Jan Crommentuyn
+Grashoekseweg – Jan Crommentuijn
 
 Heldenseweg – Harrie Luijten
 
-Heldenseweg – W. Luijten
+Heldenseweg – Wim Luijten
 
 Heldenseweg – Harry van Neerven
 
@@ -100,21 +100,21 @@ Heldenseweg – Jan Crommentuijn
 
 Spruitweg – Sjaak van Horen
 
-Spruitweg – Jan van de Werf
+Spruitweg – Jan van der Werf
 
-Koolweg – Ad van de Werf
+Koolweg – Ad van der Werf
 
-Koolweg – Toon van Mullecom
+Koolweg – Toon van Mullekom
 
 Koolweg – Harrie Toonen
 
 Koolweg – Jan Boots
 
-Koolweg – Cor Luyten
+Koolweg – Cor Luijten
 
 Koolweg – Sjun Arts
 
-Koolweg – Jan van Cauwenberge: bloemen
+Koolweg – Jan van Cauwenberghe: bloemen
 
 Koolweg – Jan van Well
 
@@ -130,7 +130,7 @@ Sevenumseweg – Gerard van Horen
 
 Sevenumseweg – Jan van Horen
 
-Geldersestraat – Marinus van Mullecom
+Geldersestraat – Marinus van Mullekom
 
 Geldersestraat – Piet Philipsen
 
@@ -144,7 +144,7 @@ Harrie Janssen
 
 ![](images/kassen-in-helenaveen/DSC_7152_Tuinder_H_Janssen_Helenaveen.jpg)
 
-Sla snijen bij Harrie Janssen
+Sla snijden bij Harrie Janssen
 
 ![](images/kassen-in-helenaveen/DSC_7151_Tuinder_H_Janssen_Helenaveen.jpg)
 
@@ -156,12 +156,16 @@ Theo Bakker in de kas van Jan Bakker op het Zinkske
 
 ![](images/kassen-in-helenaveen/wim_2Bvan_2Bmullekom.webp)
 
-Wim van Mullecom Augurkenteelt Centurioweg
+Wim van Mullekom: Augurkenteelt, Centurioweg
 
 ![](images/kassen-in-helenaveen/riki_2Bmet_2Btomaten.webp)
 
-De eerste kas van Helenaveen van Jan Bakker aan de Kervelweg.
+De eerste kas van Helenaveen van Jan Bakker aan de Kervelweg
 
 ![](images/kassen-in-helenaveen/kas_2Bschilderen.webp)
 
-Schilderen van de houten kas van Jan Bakkeraan de Kervelweg. Op de achtergrond het ketelhuis (kolenstook)
+Schilderen van de houten kas van Jan Bakker aan de Kervelweg. Op de achtergrond het ketelhuis (kolenstook)
+
+![](images/kassen-in-helenaveen/Bakker-Jan_Tuinderij.jpg)
+
+Tuinderij Jan Bakker, Kervelweg
