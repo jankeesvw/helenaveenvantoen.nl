@@ -4,6 +4,10 @@
 
 ### Ansichtkaarten
 
+![](images/ansichtkaarten/010-001_RKKerk-Pastorie_A.jpg)
+
+Een zeldzame ansichtkaart met Pastorie Kerk en klooster. Het klooster nog in de oude staat, voordat er een verdieping werd opgezet.OP de voorgrond pastoor Kerssemakers.
+
 ![](images/ansichtkaarten/001-BV42_Helenaveen_H_C3_B4telVanOers_A.jpg)
 
 Hôtel, café, logement en stalling Van Oers. Harrie van Oers staat in de deuropening.
