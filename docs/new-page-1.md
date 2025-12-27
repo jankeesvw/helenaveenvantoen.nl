@@ -18,7 +18,7 @@ Maatschappij HelenaveenDe turfstrooiselfabriekHelenaveen een oase in de woestijn
 
 VerhalenKee knies de onbetrouwbare pastoorsmeidGerada Maessen-van Teeffelen vertelt…Kunstwerken en gedenktekens in HelenaveenHelenaveen en de kolenmijn die er nooit kwamKamp het Zinkske een veelbewogen geschiedenisHugo de Vries, de PeelSpoken, sagen en legendesEen bijzondere pijlpunt gevonden bij het graven van de karpervijver P.E. de la Court, De Peel en Bedenkingen over denzelveN (1848) De geschiedenis van Helenaveen door Zr HendrinaDe geschiedenis van Helenaveen in jaartallen door André VervuurtDe reisverhalen van Dominee GrashofHelenaveen Kermis (1895)Dominee Schalekamp over de meisjesschoolDominee Schalekamp over de kermisDominee Schalekamp bezoekt een keet vol socialistenBijeengeraapt door Betje NausEen Romein komt om in de Peel, een ooggetuigeverslag.Het schip van Huibrecht Schalekamp vergaat met man en muisGeorge J.W. Carp: Helenaveen en de afschaffing van de slavernij (1842)Levensverhaal Bert Rutten
 
-Kerk en schoolVan rectoraat naar zelstandige parochie, het begin van de RK kerkKee knies de onbetrouwbare pastoorsmeidGeschiedenis van de oude en nieuwe begraafplaatsen van HelenaveenScholenDrie Kerkgemeenschappen in HelenaveenKloostersMemori - Behoud oude graven katholieke kerkhof
+Kerk en schoolDe bijzondere levensweg van pastoor TimmersVan rectoraat naar zelstandige parochie, het begin van de RK kerkKee knies de onbetrouwbare pastoorsmeidGeschiedenis van de oude en nieuwe begraafplaatsen van HelenaveenScholenDrie Kerkgemeenschappen in HelenaveenKloostersMemori - Behoud oude graven katholieke kerkhof
 
 VerveningJan Hermans vertelt hoe een veenderij te makenFoto’s vervening
 
