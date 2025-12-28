@@ -18,7 +18,7 @@ Hij volgde zijn opleiding bij de Witte Paters van Lavigerie, eerst op Sint-Charl
 
 Moederklooster van de Witte Paters van Afrika in Algiers.
 
-Vervolgens studeerde hij filosofie en theologie in Carthago (Tunesië) In Carthago ging het echter mis. Afrika bleek niet zijn bestemming en op medisch advies keerde Bert Timmers terug naar Nederland.
+Vervolgens studeerde hij filosofie en theologie in Carthago (Tunesië)In Carthago ging het echter mis. Afrika bleek niet zijn bestemming en op medisch advies keerde Bert Timmers terug naar Nederland.
 
 ![](images/pastoor-timmers/cart.jpg)
 
@@ -50,7 +50,7 @@ De oude kloostertuin werd door hem opgeruimd en opnieuw ingericht. Hij plantte e
 
 ![](images/pastoor-timmers/zil.jpg)
 
-pastoor Timmers gebruikte steeds de foto van zijn wijding in 1930
+Pastoor Timmers gebruikte steeds de foto van zijn wijding in 1930
 
 In 1960 ging pastoor Timmers nog rigoureuzer te werk. De Engelse landschapstuin liet hij omploegen, de vijver werd gedempt en het terrein werd ingeplant met zwarte bessenstruiken. Coniferen, rododendrons en andere struiken verdwenen op de brandstapel. De grond moest immers geld opbrengen. Voor een gulden per middag liet hij schoolkinderen helpen met schoffelen en met het plukken van kersen en bessen. Gekleed in zijn zwarte, opgeknoopte pij hanteerde Timmers zelf ook de schoffel en de hak.
 
