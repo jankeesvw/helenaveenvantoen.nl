@@ -28,6 +28,8 @@ Helenastraat – Henk van Mullekom
 
 Helenastraat – Cor van de Werf
 
+Helenastraat - Martie van Grunsven
+
 Soemeersingel – Hans Maas: opvolger Harry Arts
 
 Soemeersingel – Mat van Grunsven
