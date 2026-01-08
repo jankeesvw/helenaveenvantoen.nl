@@ -171,3 +171,7 @@ Schilderen van de houten kas van Jan Bakker aan de Kervelweg. Op de achtergrond 
 ![](images/kassen-in-helenaveen/Bakker-Jan_Tuinderij.jpg)
 
 Tuinderij Jan Bakker, Kervelweg
+
+![](images/kassen-in-helenaveen/kas_mart_v_gr.jpg)
+
+Kas Martien van Grunsven Helenastraat
