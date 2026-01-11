@@ -24,4 +24,4 @@ De weg is lang en kent zeker nog vele uitdagingen, maar elke stap brengt ons dic
 
 Ondertussen puzzelen en bouwen wij in onze vrije tijd door.
 
-Met vriendelijke groet,Hans van Neerven & Huub Kleintjes
+Met vriendelijke groet,Hans van Neerven & Huub Kleintjes#HistorieHerleeft #Turfwinning #Scheepvaart #Helenaveen #historie #varenderfgoed #depeel #Janske Pardoel #Bok #Houten Bok #Verdwenen erfgoed @aaenmaas #genietenvanwater *Herbeleef #HetHelenaveenVanToen

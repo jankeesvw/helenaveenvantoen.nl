@@ -31,3 +31,5 @@ Jan van de Griendt kreeg bij de ontginning van de Peel te maken met een uitdagin
 Een bijzonder detail: waar de kanalen en wijken vroeger water afvoerden, worden ze nu gebruikt voor de aanvoer. Ook het historische jaagpad langs de Helenavaart naar Griendtsveen, ooit een trekroute voor schepen, is hersteld en is nu onderdeel van een prachtige wandel- en fietsroute.
 
 Dit project verbindt zo Peels erfgoed met waterbeleving en draagt bij aan het waterbewustzijn, zodat iedereen optimaal kan genieten van de kanalen en hun verhaal.
+
+#HistorieHerleeft #Turfwinning #Scheepvaart #Helenaveen #historie #varenderfgoed #depeel #Janske Pardoel #Bok #Houten Bok #Verdwenen erfgoed @aaenmaas #genietenvanwater *Herbeleef #HetHelenaveenVanToen
