@@ -34,7 +34,7 @@ Als we bij het kantoor van de Maatschappij de brug overgaan naar de andere kant 
 
 RONDOM DE GELDERSCHE LAAN (kaartvak 4B3)
 
-![Kaart eigendommen Mij Helenaveen 1889, kaartvak 4B3.](images/de-kaar-van-deel-1/De_Hv1889_4B3.jpg)
+![Kaart eigendommen Mij Helenaveen 1889, kaartvak 4B3.](https://images.squarespace-cdn.com/content/v1/5d43f94f93ac690001e770a7/1621777588864-6BH9CSKC9H3RU94XZBAQ/De_Hv1889_4B3.jpg)
 
 Kaart eigendommen Mij Helenaveen 1889, kaartvak 4B3.
 
