@@ -2,7 +2,55 @@
 
 > Bron: helenaveenvantoen.nl
 
-Het is bijna onvoorstelbaar maar in Helenaveen stonden ooit 65 kassen.
+### De kassen van Helenaveen
+
+Het is bijna onvoorstelbaar, maar in Helenaveen stonden ooit maar liefst 65 kassen.
+
+Tot aan de Tweede Wereldoorlog werden er in Helenaveen uitsluitend gewassen geteeld in de volle grond of onder platglas. In Venlo en omgeving was men hierin verder ontwikkeld: daar werd al rond 1900 de Venlo-kas ontwikkeld. Men kwam op het idee om het al lang gebruikte platglas omhoog te brengen. In deze hogere kassen konden ook opgaande gewassen worden geteeld en bovendien was het werk er een stuk gemakkelijker.
+
+In Helenaveen was het lange tijd niet mogelijk om een lening bij de bank te krijgen voor de bouw van kassen. Alle bedrijven waren namelijk gepacht van de Maatschappij, en volgens het pachtcontract mocht er niets permanent op de grond worden gebouwd. Pas na de oorlog werden deze pachtcontracten aangepast en werd het bouwen van kassen toegestaan. Dit was te danken aan directeur Van Schelven, een landbouwingenieur die inzag dat tuinbouw zonder kassen geen toekomst had.
+
+### Het Venlo-warenhuis van hout
+
+De eerste kassen in Helenaveen waren van hout en werden ook wel Venlo-warenhuizen genoemd. Ze hadden een goothoogte van slechts twee meter. De stijlen stonden op losse betonnen poeren. De luchtramen werden bediend met draden en kabels. Het gebruikte glas was dun, slechts 3 mm dik. De wanden bestonden uit kleine ruiten die met kleine nageltjes en zwarte kit werden bevestigd.
+
+Een belangrijk nadeel van deze kassen was hun kwetsbaarheid bij stormachtig weer. Regelmatig waren reparaties nodig. Bij hevige wind konden de kassen eenvoudig worden opgetild, waarna ze meestal in elkaar zakten. Dit overkwam bijvoorbeeld de kas van Has Lagarde.
+
+Aanvankelijk werden er vooral sla, tomaten en af en toe komkommers geteeld. Sla werd vaak geoogst in het vroege voorjaar of in de herfst.
+
+![](images/kassen-in-helenaveen/Scherm_C2_ADafbeelding_2026-01-14_om_09.55.30.png)
+
+Houten kas van Harrie Jansen
+
+Voor de teelt van tomaten en komkommers werden kassen soms uitgerust met cokesketels in een ketelhuis, die warm water door een buizensysteem circuleerden. Een dergelijke kas met zogenoemde “zware stook” was in die tijd iets bijzonders. De meeste kassen in Helenaveen waren echter “koude kassen” of beschikten slechts over “lichte stook”, waarmee de teeltmogelijkheden beperkter waren.
+
+### Rolkassen in de jaren ’50
+
+In de vroege jaren vijftig werd, om de tuinbouw te stimuleren, subsidie verleend voor de bouw van rolkassen.
+
+Deze kassen waren lager van opzet, met een kapbreedte van slechts 2,5 meter en een goothoogte van ongeveer 1,2 meter. Een bijzonder kenmerk was dat de kappen verrolbaar waren. Hierdoor konden twee teelten naast elkaar worden opgezet en afwisselend worden overkapt, wat de efficiëntie van het gebruik zou moeten verhogen.
+
+![](images/kassen-in-helenaveen/rol.jpg)
+
+Verrollen van een rolkas
+
+Helaas bleken deze rolkassen vaak geen lang leven beschoren te zijn. Door hun lage bouw waren de teeltmogelijkheden beperkt tot voornamelijk lage gewassen, zoals sla en andijvie, en slechts in beperkte mate tomaten.
+
+De lage constructie vormde bovendien een duidelijke belemmering voor het werk in de kas. Mechanisatie van de grondbewerking was nauwelijks mogelijk, waardoor veel arbeid handmatig moest worden verricht. Ook was een efficiënte teeltplanning lastig, wat de praktische inzetbaarheid van de rolkassen verder verminderde.
+
+### De aluminium Venlo-kas
+
+In de jaren zestig werden de eerste aluminium kassen gebouwd. Aanvankelijk hadden deze kassen nog de standaard kapbreedte van 3,2 meter, maar al snel verscheen een verbeterde uitvoering met horizontale stalen liggers, waardoor een rij palen kon vervallen. Deze zogenoemde tweekapper had een overspanning van 6,4 meter tussen de palen, wat het werken in de kas aanzienlijk efficiënter maakte.
+
+Een nadeel van telen in kassen is dat de grond na verloop van tijd besmet raakt met ziektekiemen. Zo werd bijvoorbeeld de teelt van tomaten op een gegeven moment onmogelijk. Om dit te voorkomen werden de kassen gestoomd. Daarbij werd de grond afgedekt met zware zeilen, waaronder stoom werd ingeblazen. De bodem werd als het ware gekookt en was daarna volledig vrij van ziekten en onkruidzaden.
+
+Het stomen van kassen werd in Helenaveen uitgevoerd door Van Lier, die het voormalige bedrijf van Jan Bakker aan de Kervelweg had overgenomen. Naast stomen kon de grond ook chemisch worden ontsmet, met middelen die voornamelijk waren gebaseerd op bromideverbindingen. Vanwege de risico’s voor gezondheid en milieu waren aan deze methoden strenge vergunningen en beperkingen verbonden.
+
+Zowel het stomen als het chemisch ontsmetten waren kostbare ingrepen. Tegenwoordig zijn ze niet meer nodig, omdat men is overgegaan op substraatteelt. In de loop der jaren zijn kassen bovendien steeds hoger geworden om een beter en stabieler klimaat te creëren.
+
+Een belangrijke verbetering van de Venlokas werd geïntroduceerd in 1983. De tot dan toe gebruikelijke glasbreedte van 73 cm werd vergroot tot 100 cm. Deze aanpassing verbeterde niet alleen de technische kwaliteit van de kas door een grotere lichtdoorlating, maar maakte de constructie ook goedkoper doordat er minder roeden nodig waren. Door het kleinere aantal roeden nam bovendien de warmtetransmissie van het dek af, waardoor de kas energiezuiniger werd.
+
+De Kassen van Helenaveen
 
 Kervelweg – Jan Bakker: sla en tomaten, 1953 eerste verwarmde kas (kolen), opvolging Jan Bakker jr./Van Lier
 
@@ -28,7 +76,7 @@ Helenastraat – Henk van Mullekom
 
 Helenastraat – Cor van de Werf
 
-Helenastraat - Martie van Grunsven
+Helenastraat - Martien van Grunsven
 
 Soemeersingel – Hans Maas: opvolger Harry Arts
 
@@ -175,3 +223,5 @@ Tuinderij Jan Bakker, Kervelweg
 ![](images/kassen-in-helenaveen/kas_mart_v_gr.jpg)
 
 Kas Martien van Grunsven Helenastraat
+
+W.vdWerfJvWoezik
