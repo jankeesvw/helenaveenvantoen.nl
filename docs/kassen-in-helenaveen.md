@@ -204,7 +204,7 @@ Augurken na de sla bij Harrie Janssen
 
 Theo Bakker in de kas van Jan Bakker op het Zinkske
 
-![](https://images.squarespace-cdn.com/content/v1/5d43f94f93ac690001e770a7/4d95a7b4-6119-4219-a636-a52374c5f5ed/wim%2Bvan%2Bmullekom.webp)
+![](images/kassen-in-helenaveen/wim_2Bvan_2Bmullekom.webp)
 
 Wim van Mullekom: Augurkenteelt, Centurioweg
 
