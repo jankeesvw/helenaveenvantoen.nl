@@ -6,15 +6,47 @@
 
 Het is bijna onvoorstelbaar, maar in Helenaveen stonden ooit maar liefst 65 kassen.
 
-Tot aan de Tweede Wereldoorlog werden er in Helenaveen uitsluitend gewassen geteeld in de volle grond of onder platglas. In Venlo en omgeving was men hierin verder ontwikkeld: daar werd al rond 1900 de Venlo-kas ontwikkeld. Men kwam op het idee om het al lang gebruikte platglas omhoog te brengen. In deze hogere kassen konden ook opgaande gewassen worden geteeld en bovendien was het werk er een stuk gemakkelijker.
+Tot aan de Tweede Wereldoorlog werden er in Helenaveen uitsluitend gewassen geteeld in de volle grond of onder platglas. Pas na de tweede wereldoorlog kwamen de kassen.
 
-In Helenaveen was het lange tijd niet mogelijk om een lening bij de bank te krijgen voor de bouw van kassen. Alle bedrijven waren namelijk gepacht van de Maatschappij, en volgens het pachtcontract mocht er niets permanent op de grond worden gebouwd. Pas na de oorlog werden deze pachtcontracten aangepast en werd het bouwen van kassen toegestaan. Dit was te danken aan directeur Van Schelven, een landbouwingenieur die inzag dat tuinbouw zonder kassen geen toekomst had.
+### Platglas
+
+Bijna elke tuinder had wel platglas. Dat waren ruiten van 73 bij 165 centimeter, gevat in houten lijsten. Ze werden broeiramen of eenruiters genoemd.
+
+Peulen en tuinbonen werden onder platglas gezaaid om later uitgeplant te worden. Dat gebeurde ook met knolselderij. Voor augurken en slaplanten werden met een pottenpers van turfmolm eerst perspotjes gemaakt.
+
+Behalve voor het opkweken van plantjes werd platglas ook gebruikt voor de teelt van wortels (bospeen) en aardbeien. Zo had bijvoorbeeld Jan van de Werf aan de Spruitweg wel meer dan 100 ramen met aardbeien.
+
+![](images/kassen-in-helenaveen/broeiramen.jpeg)
+
+Platglas
+
+### In Helenaveen pas na de oorlog kassen
+
+In Venlo en omgeving was men veel eerder met de ontwikkeling van kassen. Al rond 1900 ontstond daar de zogenoemde Venlo-kas. Het idee was om het al lange tijd gebruikte platglas omhoog te brengen. In deze hogere kassen konden ook opgaande gewassen worden geteeld en bovendien was het werken er een stuk gemakkelijker.
+
+In Helenaveen lag dat anders. Daar was het lange tijd niet mogelijk om bij de bank een lening te krijgen voor de bouw van kassen. Alle bedrijven waren gepacht van de Maatschappij en volgens het pachtcontract mocht er niets permanents op de grond worden gebouwd. Pas na de oorlog werden deze contracten aangepast en werd de bouw van kassen toegestaan.
+
+Dit was te danken aan directeur Van Schelven, een landbouwingenieur die inzag dat de tuinbouw zonder kassen geen toekomst had. De kassen konden vervolgens worden gebouwd met behulp van het zogenoemde borgstellingsfonds. Dit overheidsfonds gaf banken een garantie, waardoor zij leningen konden verstrekken aan bedrijven met onvoldoende onderpand — wat in Helenaveen het geval was, omdat alle tuinderijen gepacht waren.
+
+### Rolkassen in de jaren ’50
+
+In de vroege jaren vijftig werd, om de tuinbouw te stimuleren, subsidie verleend voor de bouw van rolkassen.
+
+Deze kassen waren lager van opzet, met een kapbreedte van slechts 2,5 meter (later 3,2 meter) en een goothoogte van ongeveer 1,2 meter. Een bijzonder kenmerk was dat de kappen verrolbaar waren. Hierdoor konden twee teelten naast elkaar worden opgezet en afwisselend worden overkapt, wat de efficiëntie van het gebruik zou moeten verhogen.
+
+![](images/kassen-in-helenaveen/rol.jpg)
+
+Verrollen van een rolkas
+
+Helaas bleken deze rolkassen vaak geen lang leven beschoren. Door hun lage bouw waren de teeltmogelijkheden beperkt tot voornamelijk lage gewassen, zoals worteltjes, sla en andijvie, en slechts in beperkte mate tomaten. Bijzonder geschikt waren de rolbakken voor de teelt van bospeen. Wanneer deze groot genoeg was, kon de kap worden weggerold, waardoor er niet te veel loof werd gevormd.
+
+De lage constructie vormde bovendien een duidelijke belemmering voor het werk in de kas. Mechanisatie van de grondbewerking was nauwelijks mogelijk, waardoor veel arbeid handmatig moest worden verricht. Ook was een efficiënte teeltplanning lastig, wat de praktische inzetbaarheid van de rolkassen verder beperkte.
 
 ### Het Venlo-warenhuis van hout
 
-De eerste kassen in Helenaveen waren van hout en werden ook wel Venlo-warenhuizen genoemd. Ze hadden een goothoogte van slechts twee meter. De stijlen stonden op losse betonnen poeren. De luchtramen werden bediend met draden en kabels. Het gebruikte glas was dun, slechts 3 mm dik. De wanden bestonden uit kleine ruiten die met kleine nageltjes en zwarte kit werden bevestigd.
+De eerste kassen in Helenaveen waren van hout en werden ook wel Venlo-warenhuizen genoemd. Ze hadden een goothoogte van slechts twee meter en stonden met hun stijlen op losse betonnen poeren. De luchtramen werden bediend met draden en kabels. Het gebruikte glas was dun, slechts 3 millimeter dik. De wanden bestonden uit kleine ruiten, die met kleine nageltjes en zwarte kit werden vastgezet.
 
-Een belangrijk nadeel van deze kassen was hun kwetsbaarheid bij stormachtig weer. Regelmatig waren reparaties nodig. Bij hevige wind konden de kassen eenvoudig worden opgetild, waarna ze meestal in elkaar zakten. Dit overkwam bijvoorbeeld de kas van Has Lagarde.
+Een belangrijk nadeel van deze kassen was hun kwetsbaarheid bij stormachtig weer. Regelmatig waren reparaties nodig. Bij hevige wind konden de kassen zelfs worden opgetild. Ook tegen een dik pak sneeuw waren ze niet bestand en soms stortten ze in. Dit overkwam onder andere de kas van Has Lagarde en Toon van Mullecom.
 
 Aanvankelijk werden er vooral sla, tomaten en af en toe komkommers geteeld. Sla werd vaak geoogst in het vroege voorjaar of in de herfst.
 
@@ -22,21 +54,13 @@ Aanvankelijk werden er vooral sla, tomaten en af en toe komkommers geteeld. Sla 
 
 Houten kas van Harrie Jansen
 
-Voor de teelt van tomaten en komkommers werden kassen soms uitgerust met cokesketels in een ketelhuis, die warm water door een buizensysteem circuleerden. Een dergelijke kas met zogenoemde “zware stook” was in die tijd iets bijzonders. De meeste kassen in Helenaveen waren echter “koude kassen” of beschikten slechts over “lichte stook”, waarmee de teeltmogelijkheden beperkter waren.
+Voor de teelt van tomaten en komkommers werden sommige kassen uitgerust met verwarmingsketels in een apart ketelhuis. Het warme water werd via een buizensysteem door de kas geleid. Een dergelijke kas met zogenoemde ‘zware stook’ was in die tijd iets bijzonders.
 
-### Rolkassen in de jaren ’50
+De meeste kassen in Helenaveen waren echter koude kassen of beschikten slechts over ‘lichte stook’, waardoor de teeltmogelijkheden beperkter waren.
 
-In de vroege jaren vijftig werd, om de tuinbouw te stimuleren, subsidie verleend voor de bouw van rolkassen.
+Bij lichte stook liep één verwarmingsbuis in het midden van de kap, met aan beide zijkanten nog een buis. Bij zware stook liepen aan de zijkanten twee buizen, wat zorgde voor een veel krachtigere verwarming.
 
-Deze kassen waren lager van opzet, met een kapbreedte van slechts 2,5 meter en een goothoogte van ongeveer 1,2 meter. Een bijzonder kenmerk was dat de kappen verrolbaar waren. Hierdoor konden twee teelten naast elkaar worden opgezet en afwisselend worden overkapt, wat de efficiëntie van het gebruik zou moeten verhogen.
-
-![](images/kassen-in-helenaveen/rol.jpg)
-
-Verrollen van een rolkas
-
-Helaas bleken deze rolkassen vaak geen lang leven beschoren te zijn. Door hun lage bouw waren de teeltmogelijkheden beperkt tot voornamelijk lage gewassen, zoals sla en andijvie, en slechts in beperkte mate tomaten.
-
-De lage constructie vormde bovendien een duidelijke belemmering voor het werk in de kas. Mechanisatie van de grondbewerking was nauwelijks mogelijk, waardoor veel arbeid handmatig moest worden verricht. Ook was een efficiënte teeltplanning lastig, wat de praktische inzetbaarheid van de rolkassen verder verminderde.
+Van alle kassen met lichte of zware stook was alleen de eerste kas van Jan Bakker aan de Kervelweg verwarmd met een kolenketel. De overige kassen werden verwarmd met ketels die brandden op zware stookolie.
 
 ### De aluminium Venlo-kas
 
