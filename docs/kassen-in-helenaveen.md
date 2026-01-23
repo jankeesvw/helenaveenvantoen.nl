@@ -78,17 +78,17 @@ De Kassen van Helenaveen
 
 Kervelweg – Jan Bakker: sla en tomaten, 1953 eerste verwarmde kas (kolen), opvolging Jan Bakker jr./Van Lier
 
-Kervelweg – Piet Maessen: paprika
+Kervelweg – Piet Maessen: komkommer, koolrabie
 
-Kervelweg – Arie van Horen
+Kervelweg – Arie van Horen opvolger Marinus Lauwers
 
 Kervelweg – Johan van der Zwaan
 
-Oude Peelstraat – Toon Wijnen: actief 1965–1995
+Oude Peelstraat – Toon Wijnen: 1965–1995 Rolbak wortels,aardbeien
 
-Oude Peelstraat – Willem Maessen - Piet van der Zwaan: augurken en tomaten, rolbak
+Oude Peelstraat – Willem Maessen - Piet van der Zwaan: Rolbak wortels, tomaten,
 
-Oude Peelstraat – Antoon van Teefelen: bloemen, 1965–2015: anjers
+Oude Peelstraat – Antoon van Teefelen: bloemen, 1965–2015: fresia’s Chrisanten, anjers
 
 Oude Peelstraat – Leo Vercoulen: blauwe-bessen stek
 
@@ -98,15 +98,13 @@ Helenastraat – Cobus Maessen
 
 Helenastraat – Henk van Mullekom
 
-Helenastraat – Cor van de Werf
+Helenastraat – Cor van de Werf daarna Wim van de Werf 1953 Gestart met rolbak, uitgegrooied naar ruim 2 hA kas
 
-Helenastraat - Martien van Grunsven
+Helenastraat - Martien van Grunsven 1954
 
 Soemeersingel – Hans Maas: opvolger Harry Arts
 
 Soemeersingel – Mat van Grunsven
-
-Soemeersingel – Harry Arts: bloemen
 
 Soemeersingel – Theodoor/Johan Lagarde
 
@@ -120,7 +118,7 @@ Soemeersingel – Harrie Jansen:
 
 Soemeersingel – Grad Jansen: actief 1968–1985
 
-Soemeersingel – Roel Vermeulen: actief 1958–2010, opvolger Wijnand Vermeulen
+Soemeersingel – Roel Vermeulen: opvolger Wijnand Vermeulen 1958–2010, opvolger Wijnand Vermeulen
 
 Soemeersingel – Leonard Joosten: actief 1965–1995, opvolger Jan Arts
 
@@ -142,21 +140,21 @@ Zinkskeslaan – Rinus van Mullekom
 
 Zinkskeslaan – Jan Philipsen
 
-Zinkskeslaan – Henk van Horen
+Zinkskeslaan – Henk van Horen plastic tunnelkas
 
-Fruitweg – Marinus van de Werf: tunnelkas
+Fruitweg – Marinus van de Werf:
 
 Fruitweg – Rien Erkelens
 
 Lagebrugweg – Jan van der Zwaan
 
-Lagebrugweg – Rein van Woezik: rolbak
+Lagebrugweg – Rein van Woezik: rolbak wortels, tomaten
 
 Lagebrugweg – Theo Wijnen
 
 Rector Nuijtsstraat – Willem van Esseveldt
 
-Rector Nuijtsstraat – Cor van Horen: opvolger Ger van Horen
+Rector Nuijtsstraat – Cor van Horen: opvolger Ger van Horen zware stook
 
 Centurioweg – Wim van Mullekom
 
@@ -170,8 +168,6 @@ Heldenseweg – Wim Luijten
 
 Heldenseweg – Harry van Neerven
 
-Heldenseweg – Jan Crommentuijn
-
 Spruitweg – Sjaak van Horen
 
 Spruitweg – Jan van der Werf
@@ -184,7 +180,7 @@ Koolweg – Harrie Toonen
 
 Koolweg – Jan Boots
 
-Koolweg – Cor Luijten
+Koolweg – Cor Luijten later Piet Maessen
 
 Koolweg – Sjun Arts
 
@@ -198,7 +194,7 @@ Jan Deckerstraat – Harrie Sonnemans
 
 Jan Deckerstraat – Huub Sonnemans
 
-Jan Deckerstraat – Wouter Swinkels
+Jan Deckerstraat – Wouter Swinkels Rolbak
 
 Sevenumseweg – Gerard van Horen
 
@@ -211,6 +207,10 @@ Geldersestraat – Piet Philipsen
 ![](images/kassen-in-helenaveen/DSC_7154_Tuinder_H_Janssen_Helenaveen.jpg)
 
 Slateelt in houten kas Harrie Janssen
+
+![](images/kassen-in-helenaveen/kaart_1968.jpg)
+
+toestand 1967
 
 ![](images/kassen-in-helenaveen/DSC_7149_Tuinder_H_Janssen_Helenaveen.jpg)
 
