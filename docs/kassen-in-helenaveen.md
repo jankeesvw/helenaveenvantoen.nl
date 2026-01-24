@@ -54,13 +54,13 @@ Aanvankelijk werden er vooral sla, tomaten en af en toe komkommers geteeld. Sla 
 
 Houten kas van Harrie Jansen
 
-Voor de teelt van tomaten en komkommers werden sommige kassen uitgerust met verwarmingsketels in een apart ketelhuis. Het warme water werd via een buizensysteem door de kas geleid. Een dergelijke kas met zogenoemde ‘zware stook’ was in die tijd iets bijzonders.
-
-De meeste kassen in Helenaveen waren echter koude kassen of beschikten slechts over ‘lichte stook’, waardoor de teeltmogelijkheden beperkter waren.
+Voor de teelt van tomaten en komkommers werden sommige kassen uitgerust met verwarmingsketels in een apart ketelhuis. Het warme water werd via een buizensysteem door de kas geleid. Afhankelijk van het aantal buizen per kap waardoor het hete wate door liep, werd er gesproken van lichte of zware stook. Een kas met zogenoemde ‘zware stook’ was in die tijd iets bijzonders.
 
 Bij lichte stook liep één verwarmingsbuis in het midden van de kap, met aan beide zijkanten nog een buis. Bij zware stook liepen aan de zijkanten twee buizen, wat zorgde voor een veel krachtigere verwarming.
 
-Van alle kassen met lichte of zware stook was alleen de eerste kas van Jan Bakker aan de Kervelweg verwarmd met een kolenketel. De overige kassen werden verwarmd met ketels die brandden op zware stookolie.
+De meeste kassen in Helenaveen waren echter koude kassen of beschikten over luchtverwarming, waardoor de teeltmogelijkheden beperkter waren. In het begin werden verplaatsbare plaatijzeren kachels (Hylo’s) gebruikt die petroleum verbrandden. Later kwamen hetelucht kanonnen die opgehangen werden en die aardgas verstookten.
+
+Van alle kassen was alleen de eerste kas van Jan Bakker aan de Kervelweg verwarmd met een kolenketel. De overige kassen met lichte of zware stook werden verwarmd met ketels die brandden op zware stookolie. (Later aardgas)
 
 ### De aluminium Venlo-kas
 
@@ -214,7 +214,7 @@ toestand 1967
 
 ![](images/kassen-in-helenaveen/DSC_7149_Tuinder_H_Janssen_Helenaveen.jpg)
 
-Harrie Janssen
+Harrie Janssen, slateelt met een heteluchtkanon
 
 ![](images/kassen-in-helenaveen/DSC_7152_Tuinder_H_Janssen_Helenaveen.jpg)
 
