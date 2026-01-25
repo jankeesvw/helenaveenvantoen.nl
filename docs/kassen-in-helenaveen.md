@@ -6,7 +6,13 @@
 
 Het is bijna onvoorstelbaar, maar in Helenaveen stonden ooit maar liefst 65 kassen.
 
-Tot aan de Tweede Wereldoorlog werden er in Helenaveen uitsluitend gewassen geteeld in de volle grond of onder platglas. Pas na de tweede wereldoorlog kwamen de kassen.
+Tot aan de Tweede Wereldoorlog werden er in Helenaveen uitsluitend gewassen geteeld in de volle grond of onder platglas. In de vroege jaren vijftig werd bij bijna elk huis buiten het dorp nog getuind. ’s Avonds stonden langs de weg overal kleine stapels groenten klaar: bonen, peulen, tuinbonen, augurken, knolselderij, prei en nog veel meer.
+
+![](images/kassen-in-helenaveen/piet_sonnemans.jpg)
+
+Pietje Sonnemans en zijn gezin plukken augurken van de koude grond. Op de achtergrond staakbonen.
+
+Het ging daarbij om kleine bedrijfjes, die op den duur niet levensvatbaar bleken. Veel van deze kleine tuinders stopten uiteindelijk en gingen elders werken, bijvoorbeeld bij Vlisco in Helmond, waar zelfs een speciale bus naartoe reed.
 
 ### Platglas
 
@@ -68,61 +74,75 @@ In de jaren zestig werden de eerste aluminium kassen gebouwd. Aanvankelijk hadde
 
 Een nadeel van telen in kassen is dat de grond na verloop van tijd besmet raakt met ziektekiemen. Zo werd bijvoorbeeld de teelt van tomaten op een gegeven moment onmogelijk. Om dit te voorkomen werden de kassen gestoomd. Daarbij werd de grond afgedekt met zware zeilen, waaronder stoom werd ingeblazen. De bodem werd als het ware gekookt en was daarna volledig vrij van ziekten en onkruidzaden.
 
-Het stomen van kassen werd in Helenaveen uitgevoerd door Van Lier, die het voormalige bedrijf van Jan Bakker aan de Kervelweg had overgenomen. Naast stomen kon de grond ook chemisch worden ontsmet, met middelen die voornamelijk waren gebaseerd op bromideverbindingen. Vanwege de risico’s voor gezondheid en milieu waren aan deze methoden strenge vergunningen en beperkingen verbonden.
+Het stomen van kassen werd in Helenaveen uitgevoerd door Van Lier, die het voormalige bedrijf van Jan Bakker aan de Kervelweg had overgenomen. Naast stomen kon de grond ook chemisch worden ontsmet.
 
 Zowel het stomen als het chemisch ontsmetten waren kostbare ingrepen. Tegenwoordig zijn ze niet meer nodig, omdat men is overgegaan op substraatteelt. In de loop der jaren zijn kassen bovendien steeds hoger geworden om een beter en stabieler klimaat te creëren.
 
 Een belangrijke verbetering van de Venlokas werd geïntroduceerd in 1983. De tot dan toe gebruikelijke glasbreedte van 73 cm werd vergroot tot 100 cm. Deze aanpassing verbeterde niet alleen de technische kwaliteit van de kas door een grotere lichtdoorlating, maar maakte de constructie ook goedkoper doordat er minder roeden nodig waren. Door het kleinere aantal roeden nam bovendien de warmtetransmissie van het dek af, waardoor de kas energiezuiniger werd.
 
-De Kassen van Helenaveen
+### Het verdwijnen van de tuinbouw in Helenaveen
 
-Kervelweg – Jan Bakker: sla en tomaten, 1953 eerste verwarmde kas (kolen), opvolging Jan Bakker jr./Van Lier
+Helenaveen was ooit een echt tuindersdorp. Van de meer dan 150 tuinderijen die er ooit waren zijn er nog naar een handvol over.
 
-Kervelweg – Piet Maessen: komkommer, koolrabie
+Er zijn drie grote verdwijningsgolven te onderscheiden:
 
-Kervelweg – Arie van Horen opvolger Marinus Lauwers
+Midden jaren vijftig: kleine koude grond bedrijfjes stoppen. De glastuinders blijven nog actief.
 
-Kervelweg – Johan van der Zwaan
+Midden jaren tachtig: kleine kassen worden met behulp van een saneringsregeling afgebroken.
 
-Oude Peelstraat – Toon Wijnen: 1965–1995 Rolbak wortels,aardbeien
+Begin 21e eeuw: de kassen langs de Soemeersingel zonder uitbreidingsmogelijkheden maken plaats voor natuur.
 
-Oude Peelstraat – Willem Maessen - Piet van der Zwaan: Rolbak wortels, tomaten,
+### Alle kassen van Helenaveen
 
-Oude Peelstraat – Antoon van Teefelen: bloemen, 1965–2015: fresia’s Chrisanten, anjers
+Kervelweg 3 – Jan Bakker: sla en tomaten, 1953 eerste verwarmde kas (kolen), opvolging Jan Bakker jr./Van Lier
+
+Kervelweg 9 – Piet Maessen: komkommer, koolrabi
+
+Kervelweg 4 – Arie van Horen opvolger Marinus Lauwers
+
+Kervelweg 8 – Johan van der Zwaan
+
+Oude Peelstraat 11 – Toon Wijnen: 1965–1995 Rolbak wortels,aardbeien
+
+Oude Peelstraat 34 – Willem Maessen - Piet van der Zwaan: Rolbak wortels, tomaten,
+
+Oude Peelstraat 42 – Antoon van Teefelen: bloemen, 1965–2015: fresia’s Chrisanten, anjers
 
 Oude Peelstraat – Leo Vercoulen: blauwe-bessen stek
 
-Helenastraat – Leo Veldhuijzen
+Helenastraat 12 – Leo Veldhuijzen
 
-Helenastraat – Cobus Maessen
+Helenastraat 14 – Cobus Maessen
 
-Helenastraat – Henk van Mullekom
+Helenastraat 26 – Henk van Mullekom
 
-Helenastraat – Cor van de Werf daarna Wim van de Werf 1953 Gestart met rolbak, uitgegrooied naar ruim 2 hA kas
+Helenastraat 32 – Cor van de Werf daarna Wim van de Werf 1953 gestart met rolbak, daarna staand glas.
 
-Helenastraat - Martien van Grunsven 1954
+Helenastraat 34 - Martien van Grunsven 1954
 
 Soemeersingel – Hans Maas: opvolger Harry Arts
 
-Soemeersingel – Mat van Grunsven
+Soemeersingel 21 – Willem van Esseveldt
 
-Soemeersingel – Theodoor/Johan Lagarde
+Soemeersingel 39 – Mat van Grunsven
 
-Soemeersingel – Jan Bakker: sla, augurken, komkommers
+Soemeersingel 55 – Theodoor/Johan Lagarde
 
-Soemeersingel – Albert van Teeffelen
+Soemeersingel 57 – Jan Bakker: sla, augurken, komkommers
 
-Soemeersingel – Hannes Joosten: 1968–1985 opvolger Jan Jonker
+Soemeersingel 61 – Albert van Teeffelen, komkomers
 
-Soemeersingel – Harrie Jansen:
+Soemeersingel 75 – Hannes Joosten: 1968–1985 opvolger Jan Jonker
 
-Soemeersingel – Grad Jansen: actief 1968–1985
+Soemeersingel 77 – Harrie Jansen:
 
-Soemeersingel – Roel Vermeulen: opvolger Wijnand Vermeulen 1958–2010, opvolger Wijnand Vermeulen
+Soemeersingel 79 – Grad Jansen: actief 1968–1985
 
-Soemeersingel – Leonard Joosten: actief 1965–1995, opvolger Jan Arts
+Soemeersingel 99 – 1958 Roel Vermeulen: opvolger Wijnand Vermeulen , opvolger Wijnand Vermeulen
 
-Soemeersingel – Geert Schonewille:
+Soemeersingel 101 – Leonard Joosten: actief 1965–1995, opvolger Jan Arts
+
+Soemeersingel 109 – Geert Schonewille:
 
 Soemeersingel – Henk de Vries
 
@@ -130,79 +150,77 @@ Soemeersingel – Jan Prijs: bloemen
 
 Soemeersingel – Toon van de Mortel: rododendrons
 
-Zinkskeslaan – Jan Bakker jr.
+Zinkskeslaan 6 – Jan Bakker opvolger jan Bakker Jr
 
-Zinkskeslaan – Gerrit van der Werf
+Zinkskeslaan 16 – Gerrit van der Werf
 
-Zinkskeslaan – Jo van der Werf
+Zinkskeslaan 20 – Jo van der Werf
 
-Zinkskeslaan – Rinus van Mullekom
+Zinkskeslaan 10 – Rinus van Mullekom later J.Bakker,Giel Pennincks
 
 Zinkskeslaan – Jan Philipsen
 
-Zinkskeslaan – Henk van Horen plastic tunnelkas
+Fruitweg 2 – Marinus van de Werf:
 
-Fruitweg – Marinus van de Werf:
+Fruitweg 4 – Rien Erkelens
 
-Fruitweg – Rien Erkelens
+Lagebrugweg 15– Jan van der Zwaan opv Leo Vercoulen
 
-Lagebrugweg – Jan van der Zwaan
+Lagebrugweg 7 – Rein van Woezik: rolbak wortels, tomaten
 
-Lagebrugweg – Rein van Woezik: rolbak wortels, tomaten
+Lagebrugweg 1a– Theo Wijnen
 
-Lagebrugweg – Theo Wijnen
+Rector Nuijtsstraat 12 – Cor van Horen: opvolger Ger van Horen vroege kas ‘55 zware stook
 
-Rector Nuijtsstraat – Willem van Esseveldt
+Centurioweg 10 – Wim van Mullekom
 
-Rector Nuijtsstraat – Cor van Horen: opvolger Ger van Horen zware stook
+Centurioweg 8 – Toon van Mullekom
 
-Centurioweg – Wim van Mullekom
+Grashoekseweg 5 – Jan Crommentuijn
 
-Centurioweg – Toon van Mullekom
-
-Grashoekseweg – Jan Crommentuijn
+Heldensewg 3 Jan philipsen
 
 Heldenseweg – Harrie Luijten
 
-Heldenseweg – Wim Luijten
+Heldenseweg 6 – Wim Luijten
 
-Heldenseweg – Harry van Neerven
+Heldenseweg 7 – Harry van Neerven
 
-Spruitweg – Sjaak van Horen
+Spruitweg 8 – Sjaak van Horen
 
-Spruitweg – Jan van der Werf
+Spruitweg 6 – Jan van der Werf later Jan Faassen
 
-Koolweg – Ad van der Werf
+Koolweg 7– Ad van der Werf (1991 aan de westzijde van de weg)
 
-Koolweg – Toon van Mullekom
+Koolweg 7 – Toon van Mullekom (aan de oostzijde van de weg)
 
-Koolweg – Harrie Toonen
+Koolweg 8 – Harrie Toonen
 
-Koolweg – Jan Boots
+Koolweg 10 – Jan Boots
 
-Koolweg – Cor Luijten later Piet Maessen
+Koolweg 32 – Cor Luijten later Piet Maessen
 
-Koolweg – Sjun Arts
+Koolweg 36 – Sjun Arts, later Sjaak Hermans
 
-Koolweg – Jan van Cauwenberghe: bloemen
+Koolweg 48 – Jan van Cauwenberghe: bloemen
 
-Koolweg – Jan van Well
+Koolweg 3 – Jan van Well
 
-Koolweg – Theo van Well
+kruisbeswg 4 – Theo van Well
 
 Jan Deckerstraat – Harrie Sonnemans
 
-Jan Deckerstraat – Huub Sonnemans
+Jan Deckerstraat 3 – Huub Sonnemans
 
-Jan Deckerstraat – Wouter Swinkels Rolbak
+Jan Deckerstraat 9 – Wouter Swinkels Rolbak
 
-Sevenumseweg – Gerard van Horen
+Helenaveensewed 37 – Gerard van Horen
 
-Sevenumseweg – Jan van Horen
+Helenaveenseweg 39 – Jan van Horen
 
 Geldersestraat – Marinus van Mullekom
 
-Geldersestraat – Piet Philipsen
+Geldersestraat 10 – Piet Philipsen
 
 ![](images/kassen-in-helenaveen/DSC_7154_Tuinder_H_Janssen_Helenaveen.jpg)
 
