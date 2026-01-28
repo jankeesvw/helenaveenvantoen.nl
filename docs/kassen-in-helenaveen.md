@@ -281,6 +281,6 @@ Tuinderij Jan Bakker, Kervelweg
 
 Kas Martien van Grunsven Helenastraat
 
-Fim over het initiatief om een grootschalig tuinbouw gebied te creeern in Helenaveen (2004) https://www.youtube.com/watch?v=ReHW16PzHx4
+Fim over het initiatief om een grootschalig tuinbouw gebied te creëren in Helenaveen (2004) https://www.youtube.com/watch?v=ReHW16PzHx4
 
 W.vdWerfJvWoezik
