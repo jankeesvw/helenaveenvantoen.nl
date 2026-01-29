@@ -1,0 +1,161 @@
+# kippen
+
+> Bron: helenaveenvantoen.nl
+
+Kiepe, legnest, voersilo, kiepe ren, kiepegaas, kiepen emmer, zitstok, windei kippegrit, ochtendvoer, hardvoer, kuiken kachel, kuikenkarton, turfstrooisel, eierkist, eierdoekske, eierkist eieren poetsen, eier stempele, kiepe emmer, asfaltpapier of rietmatten, kiepeklok, kiepe luchten, drinkes emmer, kuikes, pullen, legkiep, slachtkiep kiepe mest carboleumen, kiepehok, eierlokaal, eierbuileke, Cor Veldhuize. coccidiose, kippensnot, hertshoornolie, broedse kiep, verepikke, bloedluizen, houtkrullen, legnesten, houte kiepehok, betonne kiepehok kiepebril, kunstmoeier broeieier, leeuwieken, eierbond, witte eier bruine eier, kiepe uitlaat, eier uithale,
+
+### 🐣 1. Kuikens & opfok
+
+Kuikes
+
+Pullen
+
+Kuikenkarton
+
+Kuikenkachel
+
+Turfstrooisel
+
+Drinkes emmer
+
+Kiepen emmer
+
+Ochtendvoer
+
+Hardvoer
+
+Kippegrit
+
+Windei
+
+### 🐔 2. Huisvesting
+
+Kiepehok
+
+Houte kiepehok
+
+Betonne kiepehok
+
+Asfaltpapier of rietmatten
+
+Carboleumen
+
+Zitstok
+
+Legnest / legnesten
+
+Houtkrullen
+
+Kiepe gaas
+
+Kiepe ren
+
+Kiepe deurke
+
+Kiepe luchten
+
+Kiepeklok
+
+Kunstmoeier
+
+### 🍽️ 3. Voer & water
+
+Voersilo
+
+Kiepen emmer
+
+Drinkes emmer
+
+Ochtendvoer
+
+Hardvoer
+
+Kippegrit
+
+### 🥚 4. Eieren
+
+Witte eier
+
+Bruine eier
+
+Eier uithale
+
+Eierdoekske
+
+Eierkist
+
+eierrek
+
+rekbojem
+
+eier poetse
+
+Eier stempele
+
+### 🔁
+
+### ⚠️ 6. Ziekten & problemen
+
+Coccidiose
+
+Kippensnot
+
+Bloedluizen
+
+Verepikke
+
+Leeuwieken
+
+Kiepebril
+
+Hertshoornolie
+
+kalkpoten
+
+Broedse kiep
+
+### 🧹 7. Onderhoud
+
+Kiepe mest
+
+### 🔪 8. Soorten kippen
+
+Legkiep
+
+Slachtkiep
+
+Leghorn
+
+Witte kiepe
+
+bruine kiepe
+
+### 📦 9. Organisatie & handel
+
+Eierbond
+
+Eierhuiske
+
+Cor Veldhuize
+
+Eierbuil
+
+Eierveiling
+
+Broeieier
+
+Op de ring, kachel kan een grote, ronde zinken plaat gelegd worden waaronder de warmte blijft hangen. t. De kuikenkachel was een goede oplossing voor het warmhouden van de kuikens in de eerste levensfase. Tijdens de eerste 6-7 weken hebben kuikens warmte nodig om te kunnen overleven als moeder kip niet aanwezig is. Ze gebruiken deze warmte om zichzelf te ontwikkelen tot volwassen kippen. Rondom de kachel, op een paar meter afstand, werd een kartonnen rol uitgezet. Dat bruine karton werd kuikenkarton genoemd. Zo bleven de kuikens warm en dicht bij de kachel. De kachel werd gestookt met steenkool. (eierkolen)
+
+De kuikens liepen in Helenaveen natuurlijk op een turfmolm Later zijn er infrarood kuikenlampen gekomen.
+
+![](images/kippen/kippenkachel.jpg)
+
+![](images/kippen/kippenkachel_2.jpg)
+
+![](images/kippen/kap_kachel.jpg)
+
+Een kippenbril is een plaatje dat op de snavel van een kip wordt gemonteerd. Het brilletje is niet bedoeld om het zicht te verbeteren, het belemmert dit juist. Vroeger was het hulpmiddel van metaal, vaak aluminium, de moderne versie is gemaakt van kunststof.Kippen kunnen het slachtoffer worden van verenpikkerij, iets wat zelfs tot kannibalisme kan leiden. Het is een uitwas van de instinctmatige behoefte in een groep een rangorde vast te stellen. Dit wordt naar voorbeeld van het kippengedrag de pikorde genoemd.Door met de kippenbril het zicht van de vogels te beperken wordt het vrijwel onmogelijk gemaakt andere vogels te beschadigen. Het plaatje is daartoe met een pen door de snavel voor de ogen van de vogel gemonteerd.
+
+![](images/kippen/kippenbril.jpg)
+
+Ochtendvoer, hardvoer, schelpengrit
