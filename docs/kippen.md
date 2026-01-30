@@ -144,7 +144,7 @@ Eierveiling
 
 Broeieier
 
-Op de ring, kachel kan een grote, ronde zinken plaat gelegd worden waaronder de warmte blijft hangen. t. De kuikenkachel was een goede oplossing voor het warmhouden van de kuikens in de eerste levensfase. Tijdens de eerste 6-7 weken hebben kuikens warmte nodig om te kunnen overleven als moeder kip niet aanwezig is. Ze gebruiken deze warmte om zichzelf te ontwikkelen tot volwassen kippen. Rondom de kachel, op een paar meter afstand, werd een kartonnen rol uitgezet. Dat bruine karton werd kuikenkarton genoemd. Zo bleven de kuikens warm en dicht bij de kachel. De kachel werd gestookt met steenkool. (eierkolen)
+Op de kachel kan een grote, ronde zinken plaat gelegd worden waaronder de warmte blijft hangen. t. De kuikenkachel was een goede oplossing voor het warmhouden van de kuikens in de eerste levensfase. Tijdens de eerste 6-7 weken hebben kuikens warmte nodig om te kunnen overleven als moeder kip niet aanwezig is. Ze gebruiken deze warmte om zichzelf te ontwikkelen tot volwassen kippen. Rondom de kachel, op een paar meter afstand, werd een kartonnen rol uitgezet. Dat bruine karton werd kuikenkarton genoemd. Zo bleven de kuikens warm en dicht bij de kachel. De kachel werd gestookt met steenkool. (eierkolen)
 
 De kuikens liepen in Helenaveen natuurlijk op een turfmolm Later zijn er infrarood kuikenlampen gekomen.
 
@@ -154,7 +154,7 @@ De kuikens liepen in Helenaveen natuurlijk op een turfmolm Later zijn er infraro
 
 ![](images/kippen/kap_kachel.jpg)
 
-Een kippenbril is een plaatje dat op de snavel van een kip wordt gemonteerd. Het brilletje is niet bedoeld om het zicht te verbeteren, het belemmert dit juist. Vroeger was het hulpmiddel van metaal, vaak aluminium, de moderne versie is gemaakt van kunststof.Kippen kunnen het slachtoffer worden van verenpikkerij, iets wat zelfs tot kannibalisme kan leiden. Het is een uitwas van de instinctmatige behoefte in een groep een rangorde vast te stellen. Dit wordt naar voorbeeld van het kippengedrag de pikorde genoemd.Door met de kippenbril het zicht van de vogels te beperken wordt het vrijwel onmogelijk gemaakt andere vogels te beschadigen. Het plaatje is daartoe met een pen door de snavel voor de ogen van de vogel gemonteerd.
+Een kippenbril is een plaatje dat op de snavel van een kip wordt gemonteerd. Het brilletje is niet bedoeld om het zicht te verbeteren, het belemmert dit juist. Vroeger was het hulpmiddel van metaal, vaak aluminium, de moderne versie is gemaakt van kunststof.Kippen kunnen het slachtoffer worden van verenpikkerij, iets wat zelfs tot kannibalisme kan leiden. Het is een uitwas van de instinctmatige behoefte in een groep een rangorde vast te stellen. Dit wordt naar voorbeeld van het kippengedrag de pikorde genoemd.Door met de kippenbril het zicht van de vogels te beperken wordt het vrijwel onmogelijk gemaakt andere vogels te beschadigen. Het plaatje is daartoe met een pen door de snavel voor de ogen van de vogel gemonteerd. Ook wel werd de gepikte kip ingesmeerd met hetshoornolie, de kenmerkende afstotende geur van hertshoornolie maakte een radicaal einde aan veren pikken bij kippen.
 
 ![](images/kippen/kippenbril.jpg)
 
