@@ -72,6 +72,12 @@ Hardvoer
 
 Kippegrit
 
+opfokvoer
+
+kuikenvoer
+
+kuikenvoerbakske
+
 ### 🥚 4. Eieren
 
 Witte eier
@@ -158,4 +164,56 @@ Een kippenbril is een plaatje dat op de snavel van een kip wordt gemonteerd. Het
 
 ![](images/kippen/kippenbril.jpg)
 
-Ochtendvoer, hardvoer, schelpengrit
+Ochtendvoer, hardvoer, schelpengrit, kuikenvoer opfokvoer
+
+Kiepe, legnest, voersilo, kiepe ren, kiepegaas, kiepen emmer, zitstok, windei kippegrit, ochtendvoer, hardvoer, kuiken kachel, kuikenkarton, turfstrooisel, eierkist, eierdoekske, eierkist eieren poetsen, eier stempele, kiepe emmer, asfaltpapier of rietmatten, kiepeklok, kiepe luchten, drinkes emmer, kuikes, pullen, legkiep, slachtkiep kiepe mest carboleumen, kiepehok, eierlokaal, eierbuileke, Cor Veldhuize. coccidiose, kippensnot, hertshoornolie, broedse kiep, verepikke, bloedluizen, creoline, houtkrullen, legnesten, houte kiepehok, betonne kiepehok kiepebril, kunstmoeier broeieier, leeuwieken
+
+Er werd ook turfstrooisel gebruikt in de hokken.
+
+Cor Vldhuizen bracht jullie pa builekes met eiergeld rond.
+
+Cor Veldhuijzen opvolger van Toon Joosten
+
+Ik zie hem nog geld uittellen en de builekes vullen aan de keukentafel.
+
+sorteren en keuren werdop de peelse eierbond gedaan.
+
+Hij haalde wel de eieren mee op in de Peel, met Jan Arts of Cees van Esseveldt.
+
+hij schouwde ook de eieren. Ik herinner me de schouwkast.
+
+: Kuikevoer opfokvoer
+
+Kuikens seksen
+
+Vermeerderingsbedrijf
+
+leeuwieken? [ Anders vlogen ze uit de kiepe ren
+
+De “echte” deskundige kiepeboeren noemden ze kiepedokter.
+
+Of kiepepriester
+
+Grote kiepeboere
+
+Koos de vries
+
+Toon Joosten
+
+Jan van der Zwaan
+
+Martien van der Zwaan
+
+: Antoon Joosten (Lagebrugweg)
+
+Knilles van der zwaan
+
+Gerda zegt de mooie eieren werden niet gepoetst maar gestempeld voor broedeieren
+
+Zouden die dan geschouwd worden?
+
+Er moesten een bepaald aantal hanen in een hok zitten
+
+Op een gegeven moment kwamen hyline kiepen, hybride rassen
+
+Die legden veel beter, maar je kon er niet zelf mee verder fokken.
