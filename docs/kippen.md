@@ -4,41 +4,43 @@
 
 Kiepe, legnest, voersilo, kiepe ren, kiepegaas, kiepen emmer, zitstok, windei kippegrit, ochtendvoer, hardvoer, kuiken kachel, kuikenkarton, turfstrooisel, eierkist, eierdoekske, eierkist eieren poetsen, eier stempele, kiepe emmer, asfaltpapier of rietmatten, kiepeklok, kiepe luchten, drinkes emmer, kuikes, pullen, legkiep, slachtkiep kiepe mest carboleumen, kiepehok, eierlokaal, eierbuileke, Cor Veldhuize. coccidiose, kippensnot, hertshoornolie, broedse kiep, verepikke, bloedluizen, houtkrullen, legnesten, houte kiepehok, betonne kiepehok kiepebril, kunstmoeier broeieier, leeuwieken, eierbond, witte eier bruine eier, kiepe uitlaat, eier uithale,
 
-### 🐣 1. Kuikens & opfok
+Peelse Kippen woorden
+
+1. Kuikens & opfok
 
 Kuikes
 
-Pullen
+Pullen, jonge kippen nog niet aan de leg
 
-Kuikenkarton
+Kuikenkarton, Rol bruin karton, rond de kachel om de kuikens bij elkaar te houden
 
-Kuikenkachel
+Kuikenkachel, kacheltje met daarop een zinken kegelvormige plat om de jonge kuikens warmte houden
 
-Turfstrooisel
+Kunstmoeier, Plaatijzeren bak met electrische gloespiralen die aan ijzerdraad werd opgehangen voo het warmhouden van de kuikens.
 
-Drinkes emmer
+Turfmul, turf strooisel dat in pakken werd geleverd en diende als bodembedekking
 
-Kiepen emmer
+Kiepe emmer, speciale wateremmer met bodem die na het vullen snel op de kop gezet moest worden
 
-Ochtendvoer
+Voeier emmer, lage zinken emmer voor hardvoer, ongeveer 15 cm hoog
 
-Hardvoer
+Ochtendvoer, Eiwirijk voer
 
-Kippegrit
+Hardvoer, gebroken mais en graan
 
-Windei
+Kippegrit, gebroken schelpen voor het binnenkrijgen van vondoende kalk, ter voorkoming van windeieren
+
+Windei, een ei zonder kalkschaal
 
 ### 🐔 2. Huisvesting
 
-Kiepehok
+Houte kiepehok, een houten kippenhok volgens een gestandariseerd lessenaar model
 
-Houte kiepehok
+Betonne kiepehok, een kippenhok gemaakt van betonplaten, geleverd door de betonfabriek in Neerkant
 
-Betonne kiepehok
+rietmatten, Isolatie materiaal boven de zitstokken
 
-Asfaltpapier of rietmatten
-
-Carboleumen
+Carboleumen, de kippenhokken werden om de paar jaar in de carbolineum gezet om het hout te conserveren
 
 Zitstok
 
@@ -52,11 +54,9 @@ Kiepe ren
 
 Kiepe deurke
 
-Kiepe luchten
+Kiepe bijluchten
 
 Kiepeklok
-
-Kunstmoeier
 
 ### 🍽️ 3. Voer & water
 
@@ -98,6 +98,10 @@ eier poetse
 
 Eier stempele
 
+broei eier
+
+schouwen
+
 ### 🔁
 
 ### ⚠️ 6. Ziekten & problemen
@@ -130,11 +134,15 @@ Legkiep
 
 Slachtkiep
 
-Leghorn
+Witte Leghorn
+
+Barnevelder
 
 Witte kiepe
 
 bruine kiepe
+
+hy line
 
 ### 📦 9. Organisatie & handel
 
@@ -159,6 +167,10 @@ De kuikens liepen in Helenaveen natuurlijk op een turfmolm Later zijn er infraro
 ![](images/kippen/kippenkachel_2.jpg)
 
 ![](images/kippen/kap_kachel.jpg)
+
+![](images/kippen/hok.jpg)
+
+Een houten kippenhok
 
 Een kippenbril is een plaatje dat op de snavel van een kip wordt gemonteerd. Het brilletje is niet bedoeld om het zicht te verbeteren, het belemmert dit juist. Vroeger was het hulpmiddel van metaal, vaak aluminium, de moderne versie is gemaakt van kunststof.Kippen kunnen het slachtoffer worden van verenpikkerij, iets wat zelfs tot kannibalisme kan leiden. Het is een uitwas van de instinctmatige behoefte in een groep een rangorde vast te stellen. Dit wordt naar voorbeeld van het kippengedrag de pikorde genoemd.Door met de kippenbril het zicht van de vogels te beperken wordt het vrijwel onmogelijk gemaakt andere vogels te beschadigen. Het plaatje is daartoe met een pen door de snavel voor de ogen van de vogel gemonteerd. Ook wel werd de gepikte kip ingesmeerd met hetshoornolie, de kenmerkende afstotende geur van hertshoornolie maakte een radicaal einde aan veren pikken bij kippen.
 
