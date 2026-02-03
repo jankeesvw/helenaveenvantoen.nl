@@ -162,6 +162,12 @@ Op de kachel kan een grote, ronde zinken plaat gelegd worden waaronder de warmte
 
 De kuikens liepen in Helenaveen natuurlijk op een turfmolm Later zijn er infrarood kuikenlampen gekomen.
 
+![](images/kippen/eierkist.jpg)
+
+eierkist
+
+![](images/kippen/open_kist.jpg)
+
 ![](images/kippen/kippenkachel.jpg)
 
 ![](images/kippen/kippenkachel_2.jpg)
