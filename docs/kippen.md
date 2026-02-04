@@ -8,17 +8,17 @@ Peelse Kippen woorden
 
 1. Kuikens & opfok
 
-Kuikes
+Kuikes, kuikens.
 
 Pullen, jonge kippen nog niet aan de leg
 
-Kuikenkarton, Rol bruin karton, rond de kachel om de kuikens bij elkaar te houden
+Kuikekarton, Rol bruin karton, rond de kachel om de kuikens bij elkaar te houden
 
-Kuikenkachel, kacheltje met daarop een zinken kegelvormige plat om de jonge kuikens warmte houden
+Kuikekachel, kacheltje met daarop een zinken kegelvormige plat om de jonge kuikens warmte houden
 
-Kunstmoeier, Plaatijzeren bak met electrische gloespiralen die aan ijzerdraad werd opgehangen voo het warmhouden van de kuikens.
+Kunstmoeier, plaatijzeren bak met electrische gloespiralen die aan ijzerdraad werd opgehangen voo het warmhouden van de kuikens.
 
-Turfmul, turf strooisel dat in pakken werd geleverd en diende als bodembedekking
+Turfmul, turf strooisel dat in pakken werd geleverd en diende als bodembedekking bij de kuikens, maar soms ook in het hok.
 
 Kiepe emmer, speciale wateremmer met bodem die na het vullen snel op de kop gezet moest worden
 
@@ -42,25 +42,23 @@ rietmatten, Isolatie materiaal boven de zitstokken
 
 Carboleumen, de kippenhokken werden om de paar jaar in de carbolineum gezet om het hout te conserveren
 
-Zitstok
+Zitstok, 4 of vijf latten achter elkaar waar de kippen snachts zaten. onder de zitstokken zat gaas, waar de mest doorheen viel
 
-Legnest / legnesten
+Legnest / legnesten, houten kast met schuin deksel en een gaasbodem met meestal houtkrullen
 
-Houtkrullen
+Kiepe gaas, gaas. voor om de kippenren
 
-Kiepe gaas
+Kiepe ren, ren meestal een grote buitenren waar de kippen los konden lopen.
 
-Kiepe ren
+Kiepe deurke, kleine openingen in de voorkant van het hok, naar de ren, ze werden ‘snachts gesloten.
 
-Kiepe deurke
+Kiepe bijluchten, kunstlicht om in de winter de dag te verlengen
 
-Kiepe bijluchten
-
-Kiepeklok
+Kiepeklok, Klok om de lamp voor dagverlenging automatisch in en uit te schakelen.
 
 ### 🍽️ 3. Voer & water
 
-Voersilo
+Voersilo,
 
 Kiepen emmer
 
