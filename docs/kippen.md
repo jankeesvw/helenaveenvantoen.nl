@@ -2,6 +2,48 @@
 
 > Bron: helenaveenvantoen.nl
 
+Kippenhouderij in Helenaveen
+
+Je zou het nu niet meer zeggen, maar Helenaveen was naast een tuindersdorp ook een dorp met heel veel[GV1] kippen. Op de vaak kleine tuinderijen was het houden van kippen een goede inkomstenbron om de winter te overbruggen. Het begon al vroeg in de jaren dertig.[GV2] Het houden van kippen werd gepropageerd door meester Theelen, de hoofdonderwijzer van de school. Hij experimenteerde met het houden van kippen en hield nauwkeurig de resultaten bij.
+
+Meester Theelen gaf in de avonduren ook les aan de tuinders, die een vakdiploma moesten hebben voor het verkrijgen van een teeltvergunning. De meeste tuinders hadden vanaf de jaren dertig één of meer kippenhokken, met per hok ongeveer 100 kippen. Al vóór de oorlog was er een eierafzetvereniging. Na het sorteren en wegen werden de eieren verkocht via de Venlose veiling.
+
+De kippenhokken mochten op de pachtgrond van de maatschappij worden gebouwd, omdat ze als het ware los op een fundering van betonblokken stonden en eenvoudig weer afgebroken konden worden.
+
+De kippenhokken waren meestal van hout en gebouwd volgens een gestandaardiseerd lessenaarmodel. Aan de kopse kant zat een deur en aan de hoge lange zijde bevonden zich ramen en de kippendeurtjes, die uitkwamen op een grote ren van kippengaas. Aan de lage kant van het hok waren de zitstokken, met daaronder grof gaas waar de mest doorheen viel. Boven de zitstokken, onder de pannen, was riet aangebracht om de warmte ’s nachts enigszins vast te houden. Aan de andere kopse kant bevonden zich de legnesten.
+
+Het hout van de hokken werd regelmatig in de carbolineum gezet. Op het dak lagen bijna altijd muldenpannen. De ramen bestonden vaak uit een aantal broeiramen, die er op de tuinderijen meestal in overvloed waren.
+
+Toen er, net voor de oorlog, elektriciteit kwam, ontstond ook de mogelijkheid om de dag te verlengen met lampen, vooral in de winter. De kippen hadden daardoor meer tijd om te eten, waardoor de eierproductie werd vergroot. De lampen werden automatisch in- en uitgeschakeld met een zogenaamde kippenklok.
+
+Het voer van de kippen bestond uit ochtendvoer dat eiwitrijk was en uit hardvoer, bestaande uit gebroken maïs en granen. Ook was het noodzakelijk om de kippen van grit te voorzien – gebroken schelpen – omdat dit nodig was voor de vorming van de eierschalen. Zonder grit kreeg men veel windeieren, eieren zonder schil.
+
+In de eerste jaren beschikten sommige kippenhouders over een eigen broedmachine, maar later werden de kuikens geleverd door officiële kuikenbroeders, zoals in Helenaveen bijvoorbeeld Toon Joosten. Zo’n kuikenbroederij werd een vermeerderingsbedrijf genoemd.
+
+Wanneer de kuikens geleverd werden, werd in het hok een kachel geplaatst die met kolen werd gestookt. Op de kachel lag een grote kegelvormige ijzeren plaat, waaronder de warmte werd vastgehouden. Om te voorkomen dat de kuikens wegliepen, werd om de kachel een ring van karton geplaatst van ongeveer 50 cm hoog. De grond werd bedekt met turfstrooisel.
+
+De kuikens kregen speciaal kuikenvoer en, zodra ze wat groter werden, opfokvoer. Het voer werd in speciale lage, langwerpige zinken bakjes gedaan, met daarover een draadrooster of een rollende houten stok om te voorkomen dat de kuikens in het voer gingen staan.
+
+In plaats van kuikens werden soms ook zogeheten pullen aangekocht. Dat waren kippen die bijna aan de leg waren, waardoor er minder tijd verloren ging met het grootbrengen van de kuikens.
+
+De eieren werden thuis gepoetst, vaak een klusje voor de kinderen. Het poetsen gebeurde met een nat doekje, dat na een paar dagen behoorlijk kon gaan stinken. Na het poetsen werden de eieren in houten kisten gedaan, met daarin kartonnen vierkante eierrekken en bijbehorende rekbodems met ronde gaten. In een eierkist konden vijf lagen van elk honderd eieren worden gestapeld.
+
+Soms werden de mooiste eieren apart gehouden om te gebruiken als broedeieren. Die mochten niet gepoetst worden, omdat ze dan hun beschermlaagje verloren. Broedeieren werden voorzien van een stempel.
+
+De eieren gingen naar het eierlokaal, waar ze op grootte werden gesorteerd en gewogen. De broedeieren werden gecontroleerd met een sterke lamp achter het ei om te kijken of ze bevrucht waren. Nadat de eieren waren gesorteerd, gewogen en verpakt, werden ze naar de eierveiling van de CVV in Venlo gebracht door de vrachtrijders van Esseveldt of Arts.
+
+Nadat de eieren daar waren verkocht, bracht de secretaris-inpakker Cor Veldhuijzen het geld in een zogeheten eierbuiltje huis-aan-huis rond. Het eiergeld vormde zo een regelmatige inkomstenbron voor menig huisgezin in Helenaveen.
+
+Er konden ook problemen ontstaan: berucht was het zogenaamde verenpikken. Sommige kippen deden dit en soms werd een zogenaamde kippenbril van aluminium op de snavel vastgezet om het te voorkomen. Ook hielp het om de kip die gepikt werd in te smeren met hertshoornolie, een stinkende substantie met een zeer afstotende geur.
+
+Ook konden kippen ziek worden, bijvoorbeeld aan coccidiose of kippensnot. In dat geval werd er een medicijn door het drinkwater gedaan. Soms leerden een paar kippen zichzelf aan om de eieren kapot te pikken, iets wat heel moeilijk weer af te leren was. Ook werden kippen soms broeds en waren dan niet meer van het nest af te krijgen. De remedie was om ze enige tijd apart op te sluiten.
+
+Het aantal kippen in Helenaveen steeg geleidelijk van 2.500 in 1910 naar 25.000 in 1960, met een dip in de oorlogsjaren. Na 1960 verdwenen de kleine kippenbedrijfjes één voor één, en bleven er nog maar een paar grote over, zoals Jan van der Zwaan aan de Kervelweg, Toon van Mullekom aan de Koolweg, Koos de Vries op de Spruitweg en Antoon Joosten aan de Lagebrugweg.
+
+De kippenhokken waren nog steeds van hout, maar veel langer. Vaak werden hiertoe een aantal kleine hokken tegen elkaar gezet om één groot hok te vormen.
+
+Met het verdwijnen van de kleine kippenbedrijfjes na 1960 veranderde het beeld van Helenaveen langzaam. De kleinschalige kippenhouderij, ooit een bron van inkomsten voor veel gezinnen en een belangrijk onderdeel van het dorpsleven, verdween grotendeels. Alleen enkele grotere bedrijven bleven over. Voor wie nu door Helenaveen wandelt, is het bijna niet meer voor te stellen dat hier ooit duizenden kippen rondliepen en dat het eiergeld een vast onderdeel van het gezinsinkomen was.
+
 Kiepe, legnest, voersilo, kiepe ren, kiepegaas, kiepen emmer, zitstok, windei kippegrit, ochtendvoer, hardvoer, kuiken kachel, kuikenkarton, turfstrooisel, eierkist, eierdoekske, eierkist eieren poetsen, eier stempele, kiepe emmer, asfaltpapier of rietmatten, kiepeklok, kiepe luchten, drinkes emmer, kuikes, pullen, legkiep, slachtkiep kiepe mest carboleumen, kiepehok, eierlokaal, eierbuileke, Cor Veldhuize. coccidiose, kippensnot, hertshoornolie, broedse kiep, verepikke, bloedluizen, houtkrullen, legnesten, houte kiepehok, betonne kiepehok kiepebril, kunstmoeier broeieier, leeuwieken, eierbond, witte eier bruine eier, kiepe uitlaat, eier uithale,
 
 Peelse Kippen woorden
