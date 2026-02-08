@@ -113,7 +113,7 @@ Kervelweg 3 – Jan Bakker: sla en tomaten, 1953 eerste verwarmde kas (kolen), o
 
 Kervelweg 9 – Piet Maessen: komkommer, koolrabi
 
-Kervelweg 4 – Arie van Horen opvolger Marinus Lauwers
+Kervelweg 4 – Arie van Horen opvolger Marinus Louwers
 
 Kervelweg 8 – Jantje van der Zwaan
 
