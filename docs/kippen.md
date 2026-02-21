@@ -24,6 +24,20 @@ De kippenhokken waren meestal van hout en gebouwd volgens een gestandaardiseerd 
 
 Het hout van de hokken werd regelmatig in de carbolineum gezet. Op het dak lagen bijna altijd muldenpannen. De ramen bestonden vaak uit een aantal broeiramen, die er op de tuinderijen meestal in overvloed waren.
 
+![](images/kippen/derks.jpg)
+
+Alles voor kippen en nog veel meer te koop bij Gerard Derks
+
+![](images/kippen/verstappen.jpg)
+
+Advertentie gebr. Verstappen Neerkant
+
+In de vijftiger jaren kwamen er ook geprefabriceerde betonnen kippenkokken. Ze hadden hetzelfde model als de houten exemplaren.
+
+![](images/kippen/bovenkamp.jpg)
+
+Betonnen kippenhoek van de familie bovenkamp met witte Leghorns.
+
 Toen er, net voor de oorlog, elektriciteit kwam, ontstond ook de mogelijkheid om de dag te verlengen met lampen, vooral in de winter. De kippen hadden daardoor meer tijd om te eten, waardoor de eierproductie werd vergroot. De lampen werden automatisch in- en uitgeschakeld met een zogenaamde kippenklok.
 
 ![](images/kippen/klok.jpg)
