@@ -292,10 +292,6 @@ Het vervoer van den drogen turf kost in het Helena-veen, als dit door vracht-sch
 
 [blz. 19] De Burgerturf wordt meest aan particulier schippers verkocht, die het vervoer op eigen kosten afmaken.
 
-![](images/veenbaas-jan-hermans/p19_waterleidingen_v_u.jpg)
-
-Bladzijde 19: Waterlijdingen. 14
-
 Waterlijdingen. 14
 
 Nadat er 3 of 4 kuilen op het hoog gegraven zijn, moeten er langs alle vaarwateren, aan weerskanten, bermslooten (op figuur 2o door roode lijnen voorgesteld) gemaakt worden, die ergens op een beek, b.v. de zoerloop, afwatering hebben door welke het water in de Aa wordt afgeleid. Eer men in het H[elena-]v[een] de waterlossing (zoerloop) en bermslooten had, kon men de klot niet dieper graven dan 8 of 10 klim en daarbij moest men, vooral in de voor-kuil, breede dammen laten zitten. In de laatst gegraven kuil houdt men jaarlijks eene waterlossing, van deze waterlossing naar de bermsloot maakt men grondgribben (op figuur 2o door roode strepen aangeduid). Door deze grondgribben wordt het water uit de klot-kuil in de bermslooten afgeleid; men maakt ze doorgaans 100 ellen van alkander. Het maken der grondgribben kost doorgaans 3 en ’t bermslooten-maken 5 cts per kub[ieke]. el; ze moeten alle 2 of 3 jaren van modder, die er in valt, en van gras, dat langs de kanten groeit, gezuiverd worden; het waterlossing maken, door de klot-kuil, kost 5 soms 8, ook wel eens 12 cts per bonk.
@@ -303,6 +299,10 @@ Nadat er 3 of 4 kuilen op het hoog gegraven zijn, moeten er langs alle vaarwater
 ![](images/veenbaas-jan-hermans/p20_dove_gaten_v_u.jpg)
 
 Bladzijde 20: De dove gaten. 15
+
+![](images/veenbaas-jan-hermans/p19_waterleidingen_v_u.jpg)
+
+Bladzijde 19: Waterlijdingen. 14
 
 [blz. 20]
 
@@ -382,4 +382,18 @@ Bladzijde 25: [vervolg] Over den aanleg of inrichting eener Veenderij. 18
 
 [blz. 25] en toch de moeite niet om wieken te maken. Gemakshalven zou men het kanaal voor de nieuwe Veenderij moeten maken op een paar 100 ellen na langs de kuilen, dan kon men, aan de Westzijde een goede rijweg maken, die tevens in eene veenderij noodwendig is. Aan de andere zijde, waar men de wieken graaft, zou men zich met kleine vonders kunnen behelpen. Tot uitwatering der bermslooten zou men op het einde der wieken, dat is: langs de limiet van het Helena-veen, eene groote waterlossing kunnen maken of die van het H[elena-]V[een] gebruiken en het water in de Aa leiden door de thans bestaande waterlossing, de Zoerloop, die zeer waarschijnlijk ten eeuwigen dagen zal moeten bestaan. Gelijktijdig met het kanaal-graven moet men het vaal en de klot laten wegruimen, waar men, vroeg of laat, Hoofdwieken of wieken, die in het kanaal uitloopen, maken moet, want als men aan weerskanten van het kanaal, b.v. 100 ellen, heeft weggegraven, dan moet men wieken maken; het vaal dat men vroeger afgebonkt, en de grond, die men op de dijken gebracht heeft moet dan weggeruimd worden, men zou het afbonken, dat men voorheen gedaan had, niet alleen toegeven, maar het nooit verwerkte veen kost ook 2 cts per kub. el minder van wegkruien, als datgene, welk eens of meermalen is omgezet.
 
-[20251117|HvdL | wordt vervolgd]
+![](images/veenbaas-jan-hermans/p26_de_kosten.jpg)
+
+![](images/veenbaas-jan-hermans/p27_de_kosten.jpg)
+
+De kosten der verschillende werkzaamheden, elk afzonderlijk tegen het bunder berekend. 19
+
+Om een exacte berekening der kosten te maken, is echter onmogelijk, ten 1ste, omdat het veen zich overal niet even gemakkelijk laat verwerken. Ten 2de omdat de diepte van veen zeer verschillend is en ten 3e omdat men niet altijd even veel loon aan eene zelfde werkzaamheid kan noch behoeft toe te kennen. Doch voor het eerste zullen we naar het middelmatige onze berekening maken, voor het 2de verschillende gevallen opgeven en voor het derde den gewonen prijs onder het oog houden: Het gribben uitlijnen kost fl 1 ,65Het gribben maken tot 1 ½ el diepte fl 23 ,10Wanneer de gribben aanvankelijk 1 ½ diep gemaakt worden, dan moet men ze, na 2 of 3 jaren, een steek verdiepen om ze 1 ½ el te houden, want, vooral zoolang de turf op het hoog gezet wordt, valter gedurig vuiligheid in, ook zakt het veen jaarlijks meer en meer uit; deze verdieping gaat doorgaans over het 2/3 deel fl 2,85Het moer-afkruien voor het nieuw kanaal zou, ongeveer zoo ver het Helena-veen duurt, dat is, ruim 6000 ellen, te naasten bij eene koste bedragen van fl 74,00
+
+Transport fl 101,60
+
+Het boven-veld slechten (beide zijden) kan eene koste bedragen van omtrent fl 10,00Het villen kost doorgaans fl 2,00Het turf-graven uit de splitting (12 klim diep) door Inlandsche gespannen kost omtrent fl 333,00Op 8 klim diepte kost zulks fl 198,00 en op 6 klim nagenoeg fl 139,50 Het zand uit den bodem graven (gemiddeld ½ el diep) kost, naar 13 cts per kub. el fl 41,25Het telu-schaven, opzetten, zoden steken en dijlen slichten zullen wij, hoewel het verschillend kan zijn, rekenen op fl 17 , 00Uit eene splitting van 10 bonken aan 12 klim diepte kunnen, gelijk we reeds gezegd hebben, 30 dagwerken turf (ploegwerk) gegraven worden. Deze turf kost van drogen of in ringen zetten fl 41 ,25Van omringen of omzetten fl 27 , 00Van vuren of aan hoopen zetten fl 36,00 Van inschepen, behalven ’t bijkruien fl 84 ,00En van ’t vervoer, als dit door vrachtschippers geschied fl 525 00
+
+tottaal fl 1218,05 cts
+
+[20260212|HvdL|wordt vervolgd]
