@@ -269,7 +269,7 @@ Wim van Mullekom: Augurkenteelt, Centurioweg
 
 De eerste kas van Helenaveen van Jan Bakker aan de Kervelweg
 
-![](images/kassen-in-helenaveen/kas_2Bschilderen.webp)
+![](https://images.squarespace-cdn.com/content/v1/5d43f94f93ac690001e770a7/afcc63f8-db8d-49b3-884e-203168ac0603/kas%2Bschilderen.webp)
 
 Schilderen van de houten kas van Jan Bakker aan de Kervelweg. Op de achtergrond het ketelhuis (kolenstook)
 
