@@ -59,7 +59,7 @@ De lage constructie vormde bovendien een duidelijke belemmering voor het werk in
 
 De eerste kassen in Helenaveen waren van hout en werden ook wel Venlo-warenhuizen genoemd. Ze hadden een goothoogte van slechts twee meter en stonden met hun stijlen op losse betonnen poeren. De luchtramen werden bediend met draden en kabels. Het gebruikte glas was dun, slechts 3 millimeter dik. De wanden bestonden uit kleine ruiten, die met kleine nageltjes en zwarte kit werden vastgezet.
 
-Een belangrijk nadeel van deze kassen was hun kwetsbaarheid bij stormachtig weer. Regelmatig waren reparaties nodig. Bij hevige wind konden de kassen zelfs worden opgetild. Ook tegen een dik pak sneeuw waren ze niet bestand en soms stortten ze in. Dit overkwam onder andere de kas van Has Lagarde en Toon van Mullekom.
+Een belangrijk nadeel van deze kassen was hun kwetsbaarheid bij stormachtig weer. Regelmatig waren reparaties nodig. Bij hevige wind konden de kassen zelfs worden opgetild. Ook tegen een dik pak sneeuw waren ze niet bestand en soms stortten ze in. Dit overkwam onder andere de kas van Theodoor Lagarde en Toon van Mullekom.
 
 Aanvankelijk werden er vooral sla, tomaten en af en toe komkommers geteeld. Sla werd vaak geoogst in het vroege voorjaar of in de herfst.
 
@@ -67,13 +67,13 @@ Aanvankelijk werden er vooral sla, tomaten en af en toe komkommers geteeld. Sla 
 
 Houten kas van Harrie Jansen
 
-Voor de teelt van tomaten en komkommers werden sommige kassen uitgerust met verwarmingsketels in een apart ketelhuis. Het warme water werd via een buizensysteem door de kas geleid. Afhankelijk van het aantal buizen per kap waardoor het hete water door liep, werd er gesproken van lichte of zware stook. Een kas met zogenoemde ‘zware stook’ was in die tijd iets bijzonders.
+Voor de teelt van tomaten en komkommers werden sommige kassen uitgerust met verwarmingsketels in een apart ketelhuis. Het warme water werd via een buizensysteem door de kas geleid. Afhankelijk van het aantal buizen per kap waardoor het hete water liep, werd er gesproken van lichte of zware stook. Een kas met zogenoemde ‘zware stook’ was in die tijd iets bijzonders.
 
 Bij lichte stook liep één verwarmingsbuis in het midden van de kap, met aan beide zijkanten nog een buis. Bij zware stook liepen aan de zijkanten twee buizen, wat zorgde voor een veel krachtigere verwarming.
 
 De meeste kassen in Helenaveen waren echter koude kassen of beschikten over luchtverwarming, waardoor de teeltmogelijkheden beperkter waren. In het begin werden verplaatsbare plaatijzeren kachels (Hylo’s) gebruikt die petroleum verbrandden. Later kwamen hetelucht kanonnen die opgehangen werden en die aardgas verstookten.
 
-Van alle kassen was alleen de eerste kas van Jan Bakker aan de Kervelweg verwarmd met een kolenketel. De overige kassen met lichte of zware stook werden verwarmd met ketels die brandden op zware stookolie. (Later aardgas)
+Van alle kassen was alleen de eerste kas van Jan Bakker aan de Kervelweg verwarmd met een kolenketel. De overige kassen met lichte of zware stook werden verwarmd met ketels die brandden op zware stookolie (later aardgas).
 
 ### De aluminium Venlo-kas
 
@@ -93,7 +93,7 @@ Een belangrijke verbetering van de Venlokas werd geïntroduceerd in 1983. De tot
 
 ![](images/kassen-in-helenaveen/tomaten_teelt.jpg)
 
-Tomaten teelt in een hoge aluminium kas met substraat teelt ( planten in steenwol)
+Tomaten teelt in een hoge aluminium kas met substraatteelt (planten in steenwol)
 
 ### Het verdwijnen van de tuinbouw in Helenaveen
 
@@ -117,13 +117,13 @@ Kervelweg 4 – Arie van Horen opvolger Marinus Louwers
 
 Kervelweg 8 – Jantje van der Zwaan
 
-Oude Peelstraat 11 – Toon Wijnen: 1965–1995 Rolbak wortels,aardbeien
+Oude Peelstraat 11 – Toon Wijnen: 1965–1995 Rolbak wortels, aardbeien
 
 Oude Peelstraat 34 – Willem Maessen - Piet van der Zwaan: Rolbak wortels, tomaten,
 
-Oude Peelstraat 42 – Antoon van Teefelen: bloemen, 1965–2015: fresia’s Chrisanten, anjers
+Oude Peelstraat 42 – Antoon van Teeffelen: bloemen, 1965–2015: fresia’s, chrysanten, anjers
 
-Oude Peelstraat 44 – Leo Vercoulen: blauwe-bessen stek
+Oude Peelstraat 44 – Leo Verkoelen: blauwe-bessen stek
 
 Helenastraat 12 – Leo Veldhuijzen
 
@@ -131,7 +131,7 @@ Helenastraat 14 – Cobus Maessen
 
 Helenastraat 26 – Henk van Mullekom
 
-Helenastraat 32 – Cor van de Werf daarna Wim van de Werf 1953 gestart met rolbak, daarna staand glas.
+Helenastraat 32 – Cor van de Werf, daarna Wim van de Werf. In 1953 gestart met rolbak, daarna staand glas.
 
 Helenastraat 34 - Martien van Grunsven 1954
 
@@ -149,15 +149,15 @@ Soemeersingel 61 – Albert van Teeffelen, komkomers
 
 Soemeersingel 75 – Hannes Joosten: 1968–1985 opvolger Jan Jonker
 
-Soemeersingel 77 – Harrie Jansen:
+Soemeersingel 77 – Harrie Janssen
 
-Soemeersingel 79 – Grad Jansen: actief 1968–1985
+Soemeersingel 79 – Gradus Janssen: actief 1968–1985
 
-Soemeersingel 99 – 1958 Roel Vermeulen: opvolger Wijnand Vermeulen
+Soemeersingel 99 – 1958 Roel Vermeulen, opvolger Wijnand Vermeulen
 
 Soemeersingel 101 – Leonard Joosten: actief 1965–1995, opvolger Jan Arts
 
-Soemeersingel 109 – Geert Schonewille:
+Soemeersingel 109 – Geert Schonewille
 
 Soemeersingel 113 – Henk de Vries
 
@@ -165,27 +165,27 @@ Soemeersingel 123 – Jan Prijs: bloemen
 
 Soemeersingel – Toon van de Mortel: rododendrons
 
-Zinkskeslaan 6 – Jan Bakker opvolger jan Bakker Jr
+Zinkskeslaan 6 – Jan Bakker, opvolger jan Bakker Jr
 
 Zinkskeslaan 16 – Gerrit van der Werf
 
 Zinkskeslaan 20 – Jo van der Werf
 
-Zinkskeslaan 10 – Rinus van Mullekom later Jan Bakker, Michiel Penninx
+Zinkskeslaan 10 – Rinus van Mullekom, later Jan Bakker, Michiel Penninx
 
 Zinkskeslaan – Jan Philipsen
 
-Fruitweg 2 – Marinus van de Werf:
+Fruitweg 2 – Marinus van de Werf
 
 Fruitweg 4 – Rien Erkelens
 
-Lagebrugweg 15– Jan van der Zwaan, een van de eerste kassen van Helenaveen. Deze kas had oliegestookte luchtverwarming. Opvolger Leo Vercoulen
+Lagebrugweg 15– Jan van der Zwaan, een van de eerste kassen van Helenaveen. Deze kas had oliegestookte luchtverwarming. Opvolger Leo Verkoelen
 
 Lagebrugweg 7 – Rein van Woezik: rolbak wortels, tomaten
 
 Lagebrugweg 1a– Theo Wijnen
 
-Rector Nuijtsstraat 12 – Cor van Horen: opvolger Ger van Horen vroege kas ‘55 zware stook
+Rector Nuijtsstraat 12 – Cor van Horen: opvolger Ger van Horen, vroege kas ‘55 zware stook
 
 Centurioweg 10 – Wim van Mullekom
 
@@ -193,7 +193,7 @@ Centurioweg 8 – Toon van Mullekom
 
 Grashoekseweg 5 – Jan Crommentuijn
 
-Heldensewg 3 Jan philipsen
+Heldensewg 3 Jan Philipsen
 
 Heldenseweg – Harrie Luijten
 
@@ -203,7 +203,7 @@ Heldenseweg 7 – Harry van Neerven
 
 Spruitweg 8 – Sjaak van Horen
 
-Spruitweg 6 – Jan van der Werf later Jan Faassen
+Spruitweg 6 – Jan van der Werf, later Jan Faassen
 
 Koolweg 7– Ad van der Werf (1991 aan de westzijde van de weg)
 
@@ -213,7 +213,7 @@ Koolweg 8 – Harrie Toonen
 
 Koolweg 10 – Jan Boots
 
-Koolweg 32 – Cor Luijten later Piet Maessen
+Koolweg 32 – Cor Luijten, later Piet Maessen
 
 Koolweg 36 – Sjun Arts, later Sjaak Hermans
 
@@ -221,11 +221,11 @@ Koolweg 48 – Jan van Cauwenberghe: bloemen
 
 Koolweg 3 – Jan van Well
 
-kruisbeswg 4 – Theo van Well
+Kruisbeswg 4 – Theo van Well
 
 Jan Deckerstraat 3 – Huub Sonnemans
 
-Jan Deckerstraat 9 – Wouter Swinkels Rolbak
+Jan Deckerstraat 9 – Wouter Swinkels: rolbak
 
 Sevenumseweg 2 – Harrie Sonnemans
 
@@ -271,7 +271,7 @@ De eerste kas van Helenaveen van Jan Bakker aan de Kervelweg
 
 ![](images/kassen-in-helenaveen/kas_2Bschilderen.webp)
 
-Schilderen van de houten kas van Jan Bakker aan de Kervelweg. Op de achtergrond het ketelhuis (kolenstook)
+Schilderen van de houten kas van Jan Bakker aan de Kervelweg. Op de achtergrond het ketelhuis (kolenstook).
 
 ![](images/kassen-in-helenaveen/Bakker-Jan_Tuinderij.jpg)
 
@@ -281,6 +281,6 @@ Tuinderij Jan Bakker, Kervelweg
 
 Kas Martien van Grunsven Helenastraat
 
-Fim over het initiatief om een grootschalig tuinbouw gebied te creëren in Helenaveen (2004) https://www.youtube.com/watch?v=ReHW16PzHx4
+Film over het initiatief om een grootschalig tuinbouw gebied te creëren in Helenaveen (2004): https://www.youtube.com/watch?v=ReHW16PzHx4
 
-W.vdWerfJvWoezik
+WvdWerfJvWoezik
