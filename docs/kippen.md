@@ -128,6 +128,10 @@ Met het verdwijnen van de kleine kippenbedrijfjes na 1960 veranderde het beeld v
 
 Voor wie nu door Helenaveen wandelt, is het bijna niet meer voor te stellen dat bij zowat elk huis een paar kippenhokken stonden en dat het eiergeld een vast onderdeel van het gezinsinkomen was.
 
+![](images/kippen/kip.jpeg)
+
+Een van de laatste kippenhokken ( Sonnemans, Jan Deckersstraat)
+
 Kippenvocabulair
 
 Pullen, jonge kippen nog niet aan de leg
