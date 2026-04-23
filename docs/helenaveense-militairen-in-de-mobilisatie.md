@@ -178,7 +178,7 @@ Ook gezien de zelfde data van opkomst bij hetzelfde regiment is het mogelijk dat
 
 Sjaak (Jacobus Johannes) van der Zwaan, geboren op 18-08-1916 te Deurne.
 
-Ook hij heeft zijn militaire dienstplicht vervuld bij het 2e Regiment Infanterie en is, net als Jan Crommentuijn en Harrie Maessen, zoals dat werd vermeld “ingelijfd ”op 5 oktober 1936. Op 29 augustus 1939 gemobiliseerd, maar wel later, op 14 juli 1940, met groot verlof gestuurd of gedemobiliseerd. Bekend is dat hij sinds 19 maart 1937 de rang had van korporaal.
+Ook hij heeft zijn militaire dienstplicht vervuld bij het 2e Regiment Infanterie en is, net als Jan Crommentuijn en Harrie Maessen, zoals dat werd vermeld “ingelijfd” op 5 oktober 1936. Op 29 augustus 1939 gemobiliseerd, maar wel later, op 14 juli 1940, met groot verlof gestuurd of gedemobiliseerd. Bekend is dat hij sinds 19 maart 1937 de rang had van korporaal.
 
 Albert (Lambertus Petrus) Klerks, geboren op 13-04-1917 te Helenaveen.
 

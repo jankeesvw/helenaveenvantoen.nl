@@ -145,7 +145,7 @@ Soemeersingel 55 – Theodoor/Johan Lagarde
 
 Soemeersingel 57 – Jan Bakker: sla, augurken, komkommers
 
-Soemeersingel 61 – Albert van Teeffelen, komkomers
+Soemeersingel 61 – Albert van Teeffelen, komkommers
 
 Soemeersingel 75 – Hannes Joosten: 1968–1985 opvolger Jan Jonker
 
