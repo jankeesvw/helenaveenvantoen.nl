@@ -104,8 +104,6 @@ Turfschip bij de Hoge Brug in het Deurnes Kanaal
 
 Laden turfschip Deurnes kanaal
 
-![](images/turfgraven-2/Scherm_C2_ADafbeelding_2025-01-29_om_18.41.06.png)
-
 ![Reparatie turfaak scheepswerf Gemeente Deurne](images/turfgraven-2/reparatie_Turfaak_Scheepswerf_Gemeente_Deurne.jpg)
 
 Reparatie turfaak scheepswerf Gemeente Deurne
