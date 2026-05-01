@@ -2,11 +2,6 @@
 
 > Bron: helenaveenvantoen.nl
 
-<audio controls>
-  <source src="images/kassen-in-helenaveen/Hannes_Joosten3.mp3" type="audio/mpeg">
-  Your browser does not support the audio element.
-</audio>
-
 ### De kassen van Helenaveen
 
 Het is bijna onvoorstelbaar, maar in Helenaveen stonden ooit maar liefst 65 kassen.
