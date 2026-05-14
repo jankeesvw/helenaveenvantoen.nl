@@ -130,7 +130,7 @@ Voor wie nu door Helenaveen wandelt, is het bijna niet meer voor te stellen dat 
 
 ![](images/kippen/kip.jpeg)
 
-Een van de laatste kippenhokken ( Sonnemans, Jan Deckersstraat)
+Een van de laatste kippenhokken (Sonnemans, Jan Deckersstraat)
 
 Kippenvocabulair
 
