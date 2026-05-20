@@ -32,6 +32,10 @@ In Venlo en omgeving was men veel eerder met de ontwikkeling van kassen. Al rond
 
 In Helenaveen lag dat anders. Daar was het lange tijd niet mogelijk om bij de bank een lening te krijgen voor de bouw van kassen. Alle bedrijven waren gepacht van de Maatschappij en volgens het pachtcontract mocht er niets permanents op de grond worden gebouwd. Pas na de oorlog werden deze contracten aangepast en werd de bouw van kassen toegestaan.
 
+![](images/kassen-in-helenaveen/platglas_vermeulen_joosten.JPEG)
+
+Platglas bij Roel Vermeulen. Hier samen met buurman Linnard Joosten
+
 Dit was te danken aan directeur Van Schelven, een landbouwingenieur die inzag dat de tuinbouw zonder kassen geen toekomst had. De kassen konden vervolgens worden gebouwd met behulp van het zogenoemde borgstellingsfonds. Dit overheidsfonds gaf banken een garantie, waardoor zij leningen konden verstrekken aan bedrijven met onvoldoende onderpand — wat in Helenaveen het geval was, omdat alle tuinderijen gepacht waren.
 
 Hieronder een geluidsfragment waarin Hannes Joosten het heeft over de tuinbouw in Helenaveen.
@@ -65,6 +69,10 @@ Houten kas van Harrie Jansen
 Voor de teelt van tomaten en komkommers werden sommige kassen uitgerust met verwarmingsketels in een apart ketelhuis. Het warme water werd via een buizensysteem door de kas geleid. Afhankelijk van het aantal buizen per kap waardoor het hete water liep, werd er gesproken van lichte of zware stook. Een kas met zogenoemde ‘zware stook’ was in die tijd iets bijzonders.
 
 Bij lichte stook liep één verwarmingsbuis in het midden van de kap, met aan beide zijkanten nog een buis. Bij zware stook liepen aan de zijkanten twee buizen, wat zorgde voor een veel krachtigere verwarming.
+
+![](images/kassen-in-helenaveen/tomaten_vermeulen.JPEG)
+
+Tomaten in de kas van Roel Vermeulen. De kas had een Ketelhuis met zware stook
 
 De meeste kassen in Helenaveen waren echter koude kassen of beschikten over luchtverwarming, waardoor de teeltmogelijkheden beperkter waren. In het begin werden verplaatsbare plaatijzeren kachels (Hylo’s) gebruikt die petroleum verbrandden. Later kwamen hetelucht kanonnen die opgehangen werden en die aardgas verstookten.
 
@@ -275,6 +283,22 @@ Tuinderij Jan Bakker, Kervelweg
 ![](images/kassen-in-helenaveen/kas_mart_v_gr.jpg)
 
 Kas Martien van Grunsven Helenastraat
+
+![](images/kassen-in-helenaveen/verwarmingsbuizen.jpg)
+
+Sla in de kas van Wijnand Vermeulen met verwarmingsbuizen
+
+![](images/kassen-in-helenaveen/roel_fress.JPEG)
+
+Roel Vermeulen met de Agria Freesmachine en zonen.
+
+![](images/kassen-in-helenaveen/sneeuwpret.JPEG)
+
+Sneeuwpret Bij Roel Vermeulen op de achtergrond de kas van Linnard Joosten.
+
+![](images/kassen-in-helenaveen/1969_0815_Van-Teeffelen-Vervuurt_Krant-MiddenLimburg_Peelenmaasnet.nl_AV.jpg)
+
+![](images/kassen-in-helenaveen/diplploma.jpg)
 
 Film over het initiatief om een grootschalig tuinbouw gebied te creëren in Helenaveen (2004): https://www.youtube.com/watch?v=ReHW16PzHx4
 
