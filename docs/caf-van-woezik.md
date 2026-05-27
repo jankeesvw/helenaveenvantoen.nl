@@ -20,6 +20,6 @@ Het beugelen wordt gespeeld op een baan met lemen ondergrond en een afmeting van
 
 Er zijn twee teams van twee spelers. Elke speler speelt met eigen bal en samen met zijn teamgenoot om de beurt tegen de tegenpartij. Punten worden gescoord door de bal door de ring te spelen of de bal van de tegenstander aan de korte kant, het verst van de beugel, uit de baan te spelen. Beide levert twee punten op. Wie het eerste een totaalscore van 30 punten heeft behaald is de winnaar.
 
-![](images/caf-van-woezik/Scan_11.jpeg)
+![](https://images.squarespace-cdn.com/content/v1/5d43f94f93ac690001e770a7/42913f21-c6f0-48a7-a86e-8c38879e5fb8/Scan+11.jpeg)
 
 ![](images/caf-van-woezik/Schermafbeelding_2022-04-07_om_19.29.23.png)
