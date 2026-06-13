@@ -294,7 +294,19 @@ Roel Vermeulen met de Agria Freesmachine en zonen.
 
 ![](images/kassen-in-helenaveen/sneeuwpret.JPEG)
 
-Sneeuwpret Bij Roel Vermeulen op de achtergrond de kas van Linnard Joosten.
+Sneeuwpret Bij Roel Vermeulen op de achtergrond de kas van Leonard Joosten.
+
+![](images/kassen-in-helenaveen/joosten_aardbeien.jpg)
+
+Na school moeten de jongens van Leonard Joosten overall aan en aardbeien plukken. Op achtergrond hun kas
+
+![](images/kassen-in-helenaveen/leonard_joosten_wieden_wortelbak.jpg)
+
+Leonard Joosten, Wieden wortelbak
+
+![](images/kassen-in-helenaveen/leonard_joosten_1954.jpg)
+
+1954, de nieuwe kas van Leonard Joosten, Een van de eerste kassen in Helenaveen.
 
 ![](images/kassen-in-helenaveen/1969_0815_Van-Teeffelen-Vervuurt_Krant-MiddenLimburg_Peelenmaasnet.nl_AV.jpg)
 
