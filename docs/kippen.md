@@ -10,7 +10,7 @@ Meester Theelen gaf in de avonduren ook les aan de tuinders, die een vakdiploma 
 
 ![](images/kippen/kh.jpg)
 
-Toon Bets en Leo van Mullekom proeven van de aardbeien onder platglas. op de achtergrond twee kippenhokken.
+Toon Bets en Leo van Mullekom proeven van de aardbeien onder platglas. Op de achtergrond twee kippenhokken.
 
 De kippenhokken mochten op de pachtgrond van de maatschappij worden gebouwd, omdat ze als het ware los op een fundering van betonblokken stonden en eenvoudig weer afgebroken konden worden.
 
@@ -36,7 +36,7 @@ In de vijftiger jaren kwamen er ook geprefabriceerde betonnen kippenkokken. Ze h
 
 ![](images/kippen/bovenkamp.jpg)
 
-Betonnen kippenhoek van de familie bovenkamp met witte Leghorns.
+Betonnen kippenhoek van de familie Bovenkamp met witte Leghorns.
 
 Toen er, net voor de oorlog, elektriciteit kwam, ontstond ook de mogelijkheid om de dag te verlengen met lampen, vooral in de winter. De kippen hadden daardoor meer tijd om te eten, waardoor de eierproductie werd vergroot. De lampen werden automatisch in- en uitgeschakeld met een zogenaamde kippenklok.
 
@@ -118,6 +118,8 @@ Jaarvergadering Eiervereniging 1954
 
 Het aantal kippen in Helenaveen steeg geleidelijk van 2.500 in 1910 naar 25.000 in 1960, met een dip in de oorlogsjaren. Na 1960 verdwenen de kleine kippenbedrijfjes één voor één, en bleven er nog maar een paar grote over, zoals Jan van der Zwaan aan de Kervelweg, Toon van Mullekom aan de Koolweg, Koos de Vries op de Spruitweg en Antoon Joosten aan de Lagebrugweg.
 
+![](images/kippen/PHOTO-2026-06-14-17-54-06.jpg)
+
 De kippenhokken waren nog steeds van hout, maar veel langer. Vaak werden hiertoe een aantal kleine hokken tegen elkaar gezet om één groot hok te vormen.
 
 ![](images/kippen/1959.jpg)
@@ -148,11 +150,17 @@ Kippenemmer, speciale wateremmer met bodem die na het vullen snel op de kop geze
 
 Voeremmer, lage zinken emmer voor hardvoer, ongeveer 15 cm hoog
 
-Ochtendvoer, Eiwitrijk voer
+Ochtendvoer, eiwitrijk voer
 
 Hardvoer, gebroken mais en graan
 
 Kippengrit, gebroken schelpen voor het binnenkrijgen van voldoende kalk, ter voorkoming van windeieren
+
+Opfokvoer, speciaal eiwitrijk voer voor kuikens en pullen
+
+Kuikenvoer, fijngebroken mais en graan
+
+Kuikenvoerbak, lange zinken bak met een draaiende stok erboven
 
 Wind-ei, een ei zonder kalkschaal
 
@@ -183,18 +191,6 @@ Kippenklok, Klok om de lamp voor dagverlenging automatisch in en uit te schakele
 Voersilo, draaibare hoge ton voor ochtendvoer
 
 kippen-drinkemmer, wateremmer met losse bodem die omgekeerd moest worden
-
-Ochtendvoer, gemalen eiwitrijk meel
-
-Hardvoer, gebroken mais en andere graankorrels
-
-Kippengrit, gebroken schelpen
-
-Opfokvoer, speciaal eiwitrijk voer voor kuikens en pullen
-
-Kuikenvoer, fijngebroken mais en graan
-
-Kuikenvoerbak, lange zinken bak met een draaiende stok erboven
 
 Eieren uithalen, eieren verzamelen, meestal een of twee keer per dag
 
@@ -242,33 +238,15 @@ Barnevelder, mooie bruine kip
 
 Hy Line, hybride niet soortvaste kip die veel meer legt maar minder oud wordt
 
-Eierbond
+Eierhuiske, het inpaklokaal aan de Soemeersingel (nog bestaand)
 
-Eierhuiske
-
-Cor Veldhuize
-
-Eierbuil
-
-Eierveiling
-
-Broeieier
-
-Kuikens seksen
-
-Vermeerderingsbedrijf
+Eierbuiltje, papieren zakje waar het geld voor de geleverde eieren inzat.
 
 ![](images/kippen/kippenkachel.jpg)
 
 ![](images/kippen/kap_kachel.jpg)
 
-Cor Veldhuijzen bracht builekes met eiergeld rond.
-
-Ik zie hem nog geld uittellen en de builekes vullen aan de keukentafel.
-
-Hij haalde wel de eieren mee op in de Peel, met Jan Arts of Cees van Esseveldt.
-
-Hij schouwde ook de eieren. Ik herinner me de schouwkast.
+Kuikenkachel met scherm
 
 Bron Venlo Wie Ut Vruuger Waas
 
