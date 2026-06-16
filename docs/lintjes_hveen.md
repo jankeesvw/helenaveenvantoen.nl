@@ -22,7 +22,7 @@ Dick van Esseveldt (85) heeft zich in Helenaveen vele jaren als vrijwilliger ing
 
 Gegevens van de decorandus; Dick van Esseveldt. Woonplaats : Helenaveen. Decoratie: Lid in de Orde van Oranje Nassau.
 
-Onderscheidingen in eerdere jaren
+Onderscheidingen in eerdere jaren(deze lijst is in bewerking)
 
 Geurt van Esseveldt (30 of 33 jaar geleden)
 
