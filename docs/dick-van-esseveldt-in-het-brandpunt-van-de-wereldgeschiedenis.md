@@ -6,6 +6,10 @@ In het brandpunt van de wereldgeschiedenis
 
 Herinneringen van Dick van Esseveldt uit Helenaveen
 
+![](images/dick-van-esseveldt-in-het-brandpunt-van-de-wereldgeschiedenis/Naamloos_7.jpg)
+
+Dick van Esseveldt
+
 In de zomer van 1962 was Nieuw-Guinea voor de meeste Nederlanders een verre plek, ergens aan de andere kant van de wereld. Maar achter de krantenberichten over diplomatie en onderhandelingen zat gewoon een harde werkelijkheid: jonge Nederlandse militairen die elk moment in een oorlog terecht konden komen.
 
 Eén van hen was ik: Dick van Esseveldt uit Helenaveen, kok aan boord van Hr.Ms. Kortenaer (een torpedobootjager)
