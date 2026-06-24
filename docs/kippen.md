@@ -36,7 +36,7 @@ In de vijftiger jaren kwamen er ook geprefabriceerde betonnen kippenkokken. Ze h
 
 ![](images/kippen/bovenkamp.jpg)
 
-Betonnen kippenhoek van de familie Bovenkamp met witte Leghorns.
+Betonnen kippenhoek van de familie Van de Bovenkamp met witte Leghorns.
 
 Toen er, net voor de oorlog, elektriciteit kwam, ontstond ook de mogelijkheid om de dag te verlengen met lampen, vooral in de winter. De kippen hadden daardoor meer tijd om te eten, waardoor de eierproductie werd vergroot. De lampen werden automatisch in- en uitgeschakeld met een zogenaamde kippenklok.
 
@@ -88,6 +88,10 @@ Eierkist met 500 eieren
 
 1939 Lening nieuw inpaklokaal: f 1300,-
 
+![](images/kippen/00007_Soemeersingel51-eierloods-bouwtek-20Helenaveen_cAV.jpeg)
+
+Het nieuwe Eierlokaal (bron A.V.)
+
 De eieren gingen naar het eierlokaal, waar ze op grootte werden gesorteerd en gewogen. Alle eieren werden geschouwd. hierbij werd een hortje met 100 eieren op een schouwkast gezet waarna automatisch sterke lampen onder de eieren werden ingeschakeld. Op die manier werden kapotte eieren, bloedeieren en soms bebroede eieren eruit gehaald. Nadat de eieren waren gesorteerd, gewogen en verpakt, werden ze naar de eierveiling van de CVV in Venlo gebracht door de vrachtrijders Van Esseveldt of Arts.
 
 ![](images/kippen/Naamloosarts_10.jpg)
@@ -101,6 +105,10 @@ De Eierveing aan de Havenstraat in Venlo
 ![](images/kippen/eierveilin_Venlo.jpg)
 
 Beeld uit de eierveiling in Venlo
+
+![](images/kippen/05-1965_Cor-Veldhuijzen.jpg)
+
+Cor Veldhuijzen (mei 1965)
 
 Nadat de eieren daar waren verkocht, bracht de secretaris-inpakker Cor Veldhuijzen het geld in een zogeheten eierbuiltje huis-aan-huis rond. Het eiergeld vormde zo een regelmatige inkomstenbron voor menig huisgezin in Helenaveen.Cor Veldhuijzen was de opvolger van Bertus Lagarde (HendZn).
 
@@ -116,9 +124,17 @@ Ook konden kippen ziek worden, bijvoorbeeld aan coccidiose of kippensnot. In dat
 
 Jaarvergadering Eiervereniging 1954
 
-Het aantal kippen in Helenaveen steeg geleidelijk van 2.500 in 1910 naar 25.000 in 1960, met een dip in de oorlogsjaren. Na 1960 verdwenen de kleine kippenbedrijfjes één voor één, en bleven er nog maar een paar grote over, zoals Jan van der Zwaan aan de Kervelweg, Toon van Mullekom aan de Koolweg, Koos de Vries op de Spruitweg en Antoon Joosten aan de Lagebrugweg.
+Het aantal kippen in Helenaveen steeg geleidelijk van 2.500 in 1910 naar 25.000 in 1960, met een dip in de oorlogsjaren. Na 1960 verdwenen de kleine kippenbedrijfjes één voor één, en bleven er nog maar een paar grote over, zoals Jan van der Zwaan aan de Kervelweg, Toon van Mullekom aan de Koolweg, Koos de Vries op de Wijkstraat (later Soemeersingel) en Antoon Joosten aan de Lagebrugweg.
 
 ![](images/kippen/PHOTO-2026-06-14-17-54-06.jpg)
+
+![](images/kippen/1952_Bestelbon-kuikens_Joosten_cAV.jpeg)
+
+Bestelbon A.Joosten (bron A.V.)
+
+![](images/kippen/1952_Bestelbon-kuikens_Joosten02_cAV.jpeg)
+
+Vervoer per rijwiel (bron A.V.)
 
 De kippenhokken waren nog steeds van hout, maar veel langer. Vaak werden hiertoe een aantal kleine hokken tegen elkaar gezet om één groot hok te vormen.
 
@@ -133,6 +149,14 @@ Voor wie nu door Helenaveen wandelt, is het bijna niet meer voor te stellen dat 
 ![](images/kippen/kip.jpeg)
 
 Een van de laatste kippenhokken (Sonnemans, Jan Deckersstraat)
+
+![](images/kippen/Scherm_C2_ADafbeelding_2026-06-23_om_21.13.11.png)
+
+Het oude inpaklokaal wordt peuterspeelzaal
+
+![](images/kippen/Scherm_C2_ADafbeelding_2026-06-23_om_21.25.57.png)
+
+Opening Eierdöpke - september 1980 (bron A.V.)
 
 Kippenvocabulair
 
@@ -248,6 +272,12 @@ Eierbuiltje, papieren zakje waar het geld voor de geleverde eieren inzat.
 
 Kuikenkachel met scherm
 
-Bron Venlo Wie Ut Vruuger Waas
+Bronnen
+
+Venlo Wie Ut Vruuger Waas
+
+André Vervuurt
 
 Website Jan Arts Transport
+
+Jan van Woezik, juni 2026
