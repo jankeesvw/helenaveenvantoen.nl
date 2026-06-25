@@ -92,7 +92,9 @@ Eierkist met 500 eieren
 
 Het nieuwe Eierlokaal (bron A.V.)
 
-De eieren gingen naar het eierlokaal, waar ze op grootte werden gesorteerd en gewogen. Alle eieren werden geschouwd. hierbij werd een hortje met 100 eieren op een schouwkast gezet waarna automatisch sterke lampen onder de eieren werden ingeschakeld. Op die manier werden kapotte eieren, bloedeieren en soms bebroede eieren eruit gehaald. Nadat de eieren waren gesorteerd, gewogen en verpakt, werden ze naar de eierveiling van de CVV in Venlo gebracht door de vrachtrijders Van Esseveldt of Arts.
+In Helenaveen werd het transport verzorgd door Lint van Esseveldt en Jan Arts. In het eierlokaal - de Eierbond - werden de eieren op grootte gesorteerd en gewogen. Alle eieren werden geschouwd. Hierbij werd een hortje met 100 eieren op een schouwkast gezet waarna automatisch sterke lampen onder de eieren werden ingeschakeld. Op die manier werden kapotte eieren, bloedeieren en soms bebroede eieren eruit gehaald. Nadat de eieren waren gesorteerd, gewogen en verpakt, werden ze naar de eierveiling van de CVV in Venlo gebracht door de transportdienst van de veiling.
+
+Er is sprake van een ongeval dat tijdens het transport naar Venlo plaatsvond in Helenaveen, bij de boerderij van Gerrit Brouwer. De kisten met eieren stonden op een platte, open bak van een Dodge, maar werden door de botsing tegen een boom van de wagen geslingerd. Tot Harrie Kettenaar (Kartner), het huis naast Dorus Naus, was er sprake van “struif op de weg”.(Bron: Dick van Esseveldt)
 
 ![](images/kippen/Naamloosarts_10.jpg)
 
@@ -100,11 +102,11 @@ Jan Arts Jr. voor hun huis, Koolweg 42
 
 ![](images/kippen/veiling.jpg)
 
-De Eierveing aan de Havenstraat in Venlo
+De Eierveiling aan de Havenstraat in Venlo
 
 ![](images/kippen/eierveilin_Venlo.jpg)
 
-Beeld uit de eierveiling in Venlo
+Beeld uit de Eierveiling in Venlo
 
 ![](images/kippen/05-1965_Cor-Veldhuijzen.jpg)
 
