@@ -74,7 +74,7 @@ Witte Leghorn pullen te koop. Nieuwe Venlosche couranrt 23 okt. 1940
 
 De eieren werden thuis gepoetst, vaak een klusje voor de kinderen. Het poetsen gebeurde met een nat doekje, dat na een paar dagen behoorlijk kon gaan stinken. Na het poetsen werden de eieren in houten kisten gedaan, met daarin kartonnen vierkante eierrekken en bijbehorende hortjes met ronde gaten. In een eierkist konden vijf lagen van elk honderd eieren worden gestapeld.
 
-![](images/kippen/eierkist.jpg)
+![](https://images.squarespace-cdn.com/content/v1/5d43f94f93ac690001e770a7/1ddf1f4d-e684-4961-a775-b926ddd6d085/eierkist.jpg)
 
 eierkist
 
