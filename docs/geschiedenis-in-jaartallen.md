@@ -674,21 +674,27 @@ Turfstekers zwoegden in het peelmoeras
 
 Staan tussen veel geboomt' en struikgewas
 
-Verscholen huisjes, waarin tuinders wonen
+Verscholen huisjes, waarin tuinders wonen.
 
 Vol vlijt en kennis werken zij met zonen
 
-En dochters op het land of in de kas
+En dochters op het land of in de kas;
 
-Aardbeien zwellen rijpend onder glas
+Aardbeien zwellen rijpend onder glas;
 
-In zon gedijen peulen, kolen, bonen
+In zon gedijen peulen, kolen, bonen.
+
+De klok der nieuwe, sobere kerk verspreit
+
+haar slagen helder in de vredigheid,
+
+waar vogelliederen in het lommer klinken.
 
 Geen schip der maatschappij "Helenaveen"
 
 Vaart nog - met turf beladen - als voorheen
 
-Door 't zwart kanaal, waarin soms vissen blinken
+Door 't zwart kanaal, waarin soms vissen blinken.
 
 ### 1957
 
