@@ -10,7 +10,7 @@ Er wordt gewerkt aan meer info over de Peel-Raamstelling.
 
 OVERZICHTEN
 
-![Plaats kazematten S-202 tot en met S-205.](https://images.squarespace-cdn.com/content/v1/5d43f94f93ac690001e770a7/1624041860340-8BK17NALUJA3O4XSB3QH/Deurne+sectie+H+Helenaveen+kazematten+202-205+IMG_2282.jpg)
+![Plaats kazematten S-202 tot en met S-205.](images/peelraamstelling/Deurne_sectie_H_Helenaveen_kazematten_202-205_IMG_2282.jpg)
 
 Plaats kazematten S-202 tot en met S-205.
 
