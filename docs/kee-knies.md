@@ -10,7 +10,7 @@ Kee beschouwde de zusters al snel als rivalen en deed er alles aan om hen bij de
 
 ![](images/kee-knies/010-001_RKKerk-Pastorie_A.jpg)
 
-Een zeldzame ansicht met daarop Pastorie, kerk en Klooster.Het klooster nog in oude staat voordat er een verdieping op gezet werd. (collectie G.V.)
+Een zeldzame ansicht met daarop pastorie, kerk en klooster.Het klooster nog in oude staat voordat er een verdieping op gezet werd. (collectie G.V.)
 
 Al spoedig werden ’s ochtends op de poort tussen kerk en klooster herhaaldelijk anonieme briefjes aangetroffen, voorzien van minderwaardige zinspelingen en spotprenten die waren gericht tegen de kloostermoeder, zuster Agnes. Op één van die briefjes stond zelfs de dreiging dat zuster Agnes binnen zes weken Helenaveen moest verlaten, anders zou zij door de andere zusters worden gedood.
 
