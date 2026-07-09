@@ -26,7 +26,7 @@ In 1905 werd een plan opgesteld voor een tramverbinding Venlo-Maasbree-Helden-Me
 
 ![](images/beringse-tram/tram_in_beringen.jpg)
 
-De tram bij het eindstation in Beringen (1942)
+De tram bij het eindstation in Beringe (1942)
 
 De lijn Deurne Roermond (LTM: Limburgse Tramweg Maatschappij)
 

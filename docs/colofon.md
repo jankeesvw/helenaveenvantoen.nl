@@ -20,4 +20,4 @@ De redactie bestaat uit Gerard Veldhuizen, Jan van Woezik en Hans van de Laarsch
 
 Bronnen en links
 
-Archieven (bij RHCe): Maatschappij Helenaveen | Fonds Koning Willem III | Gemeente Deurne | Hans van de Laarschot (http://www.peelbronnen.nl)Paul Theelen (http://www.theelen.info ) André Vervuurt ( http://www.andre-vervuurt.nl/ ) Gerard Veldhuizen Jan van Woezik Fotocollectie Gemeente Deurne media: CD-Rom Helenaveen Deurne Wiki.deurnewiki.nl tijkools.nl http://www.industriespoor.nl/Turf.htm | Stichting Oorlogsslachtoffers https://www.oorlogsslachtoffers.nl
+Archieven (bij RHCe): Maatschappij Helenaveen | Fonds Koning Willem III | Gemeente Deurne | Hans van de Laarschot (http://www.peelbronnen.nl)Paul Theelen (http://www.theelen.info ) André Vervuurt ( http://www.andre-vervuurt.nl/ ) Gerard Veldhuizen Jan van Woezik Fotocollectie Gemeente Deurne media: CD-Rom Helenaveen Deurne Wiki - deurnewiki.nl tijkools.nl http://www.industriespoor.nl/Turf.htm | Stichting Oorlogsslachtoffers https://www.oorlogsslachtoffers.nl
