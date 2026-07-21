@@ -26,7 +26,7 @@ Onderweg blijkt te Griendtsveen het vee massaal door Deutsche soldaten weggedrev
 
 Sept. 28. Zooals later werd medegedeeld zou in de afgeloopen nacht op leden der Deutsche Wehrmacht door partisanen geschoten zijn, waarbij een officier tijdens verblijf op de brandtoren in het berkenbosch achter het kantoor aan de hand gewond zou zijn. Zulks is hoogst onwaarschijnlijk omdat de ondergrondsche actie sinds 14 dagen was stilgelegd. Overigens is in diezelfde nacht volgens mededeeling van den hoofdonderwijzer Theelen door kennelijk benevelde soldaten bij Café van Horen met een mitrailleur in alle richtingen gevuurd en was trouwens steeds het schieten met handvuurwapens in elke nacht te verneemen uit alle richtingen.
 
-In ieder geval werd het bovenstaande aangegrepen als voorwendsel om de algeheele evacuatie van Helenaveen vóór 15 uur om 11 uur te gelasten en intusschen 10 gijzelaars te neemen, die werden gebracht in de afgesloten wagenschuur bij de boerderij van de N.S.B.-er Syl Kluytmans, gelegen bij de zgn. Koningsbrug in de weg Helenaveen-Helden. Onder de gijzelaars bevond zich onder meer een broeder uit het kamp der Paters, die in civiel in het dorp verkeerde voor het doen van inkoopen, voorts G. Brouwer van Hoeve "de Zwijger", de tuinder L. van Esseveldt, den tuinderszoon van der Werff, den onderduiker "Sjors", enz.
+In ieder geval werd het bovenstaande aangegrepen als voorwendsel om de algeheele evacuatie van Helenaveen vóór 15 uur om 11 uur te gelasten en intusschen 10 gijzelaars te neemen, die werden gebracht in de afgesloten wagenschuur bij de boerderij van de N.S.B.-er Syl Kluytmans (noot), gelegen bij de zgn. Koningsbrug in de weg Helenaveen-Helden. Onder de gijzelaars bevond zich onder meer een broeder uit het kamp der Paters, die in civiel in het dorp verkeerde voor het doen van inkoopen, voorts G. Brouwer van Hoeve "de Zwijger", de tuinder L. van Esseveldt, den tuinderszoon van der Werff, den onderduiker "Sjors", enz.
 
 Bij terugkeer uit Ysselstein heb ik getracht mij met den betrokken commandant, die zijn commandopost had gevestigd in de tuinderswoning H.137 van A. van der Werff, in verbinding te stellen doch werd door plunderende onderofficier en soldaten onder bedreiging van schieten het dorp uitgeweezen.
 
@@ -123,6 +123,8 @@ B.D. van Schelven
 Bron
 
 Verslag, op 9 handgeschreven pagina’s, bevindt zich in het archief van de NV Maatschappij Helenaveen (Regionaal Historisch Centrum, Eindhoven)
+
+Noot: de bewering dat Syl Kluijtmans NSB-er zou zijn is niet correct. Twee van zijn zoons waren dat wél.
 
 Transcriptie
 
