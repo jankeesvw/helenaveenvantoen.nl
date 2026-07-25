@@ -8,6 +8,6 @@ Deze pagina toont de verzameling van de verslagen over de bouw van de Bok “Jan
 
 ![](images/houtenbokjanskepardoel/Houten_bok_-_Schaalmodel_-_3.jpg)
 
-31 mei 2024 - Verdwenen schepen terug in de Peel 2 juni 2025 - Van droom naar werkelijkheid… 18 december 2025 - Het zagen van de planken… 2 januari 2026 - … hoe het wordt gemaakt
+24 juli 2026 - Knoesten vervangen door houten proppen31 mei 2024 - Verdwenen schepen terug in de Peel 2 juni 2025 - Van droom naar werkelijkheid… 18 december 2025 - Het zagen van de planken… 2 januari 2026 - … hoe het wordt gemaakt
 
 Met vriendelijke groet,Hans van Neerven & Huub Kleintjes #HistorieHerleeft #Turfwinning #Scheepvaart #Helenaveen #historie #varenderfgoed #depeel #Janske Pardoel #Bok #Houten Bok #Verdwenen erfgoed @aaenmaas #genietenvanwater *Herbeleef #HetHelenaveenVanToen
