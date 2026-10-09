@@ -114,7 +114,7 @@ Begin 21e eeuw: De aanwijzing van de Peel tot Natura 2000 gebied met bijbehorend
 
 Kervelweg 3 – Jan Bakker: sla en tomaten, 1953 eerste verwarmde kas (kolen), opvolging Jan Bakker jr./Van Lier
 
-Kervelweg 9 – Piet Maessen: komkommer, koolrabi
+Kervelweg 9 – Piet Maessen: komkommer, koolrabi, later Gerrit van der Werf
 
 Kervelweg 4 – Arie van Horen opvolger Marinus Louwers
 
@@ -138,7 +138,7 @@ Helenastraat 32 – Cor van de Werf, daarna Wim van de Werf. In 1953 gestart met
 
 Helenastraat 34 - Martien van Grunsven 1954
 
-Soemeersingel 4 – Hans Maas: opvolger Harry Arts
+Soemeersingel 4 – Hans Maas: opvolger Harry Arts (voorheen: Koolweg 9)
 
 Soemeersingel 21 – Willem van Esseveldt
 
@@ -168,7 +168,7 @@ Soemeersingel 123 – Jan Prijs: bloemen
 
 Soemeersingel – Toon van de Mortel: rododendrons
 
-Zinkskeslaan 6 – Jan Bakker, opvolger jan Bakker Jr
+Zinkskeslaan 6 – Jan Bakker, opvolger Jan Bakker Jr
 
 Zinkskeslaan 16 – Gerrit van der Werf
 
@@ -208,9 +208,9 @@ Spruitweg 8 – Sjaak van Horen
 
 Spruitweg 6 – Jan van der Werf, later Jan Faassen
 
-Koolweg 7– Ad van der Werf (1991 aan de westzijde van de weg)
+Koolweg 6 – Toon van Mullekom (aan de oostzijde van de weg)
 
-Koolweg 7 – Toon van Mullekom (aan de oostzijde van de weg)
+Koolweg 7– Ad van der Werf (1991 aan de westzijde van de weg)
 
 Koolweg 8 – Harrie Toonen
 
@@ -236,7 +236,7 @@ Helenaveensewed 37 – Gerard van Horen
 
 Helenaveenseweg 39 – Jan van Horen
 
-Geldersestraat 12 – Marinus van Mullekom
+Geldersestraat 12 – Marinus van Mullekom, later Piet Hoogenboom
 
 Geldersestraat 10 – Piet Philipsen
 
