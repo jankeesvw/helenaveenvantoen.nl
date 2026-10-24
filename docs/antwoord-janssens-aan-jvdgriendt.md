@@ -50,7 +50,7 @@
 
 ![Janssens-Antwoord00124.jpg](images/antwoord-janssens-aan-jvdgriendt/Janssens-Antwoord00124.jpg)
 
-![Janssens-Antwoord00125.jpg](https://images.squarespace-cdn.com/content/v1/5d43f94f93ac690001e770a7/1621687868532-YR9DWQVI0L9MARZF1K4B/Janssens-Antwoord00125.jpg)
+![Janssens-Antwoord00125.jpg](images/antwoord-janssens-aan-jvdgriendt/Janssens-Antwoord00125.jpg)
 
 ![Janssens-Antwoord00126.jpg](images/antwoord-janssens-aan-jvdgriendt/Janssens-Antwoord00126.jpg)
 
@@ -64,7 +64,7 @@
 
 ![Janssens-Antwoord00131.jpg](images/antwoord-janssens-aan-jvdgriendt/Janssens-Antwoord00131.jpg)
 
-![Janssens-Antwoord00132.jpg](https://images.squarespace-cdn.com/content/v1/5d43f94f93ac690001e770a7/1621688176448-7KOT8YS2S2W959MHAI6V/Janssens-Antwoord00132.jpg)
+![Janssens-Antwoord00132.jpg](images/antwoord-janssens-aan-jvdgriendt/Janssens-Antwoord00132.jpg)
 
 ![Janssens-Antwoord00133.jpg](images/antwoord-janssens-aan-jvdgriendt/Janssens-Antwoord00133.jpg)
 
