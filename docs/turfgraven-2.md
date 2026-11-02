@@ -6,6 +6,10 @@
 
 Stoomsleepboot Helenaveen in de bocht bij de Protestantse kerk
 
+![](images/turfgraven-2/laden_schip_loods.jpg)
+
+Laden turfschip
+
 ![Scheepswerf Geldersestraat](images/turfgraven-2/scheefswerf.jpg)
 
 Scheepswerf Geldersestraat
