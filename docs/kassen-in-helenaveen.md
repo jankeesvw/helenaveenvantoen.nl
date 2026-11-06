@@ -260,7 +260,7 @@ Sla snijden bij Harrie Janssen
 
 Augurken na de sla bij Harrie Janssen
 
-![](images/kassen-in-helenaveen/theo_2Bbakker.webp)
+![](https://images.squarespace-cdn.com/content/v1/5d43f94f93ac690001e770a7/4bf19a06-33c2-44b0-a8cd-cc058cecbd77/theo%2Bbakker.webp)
 
 Theo Bakker in de kas van Jan Bakker op het Zinkske
 
