@@ -26,6 +26,8 @@ Turfschip vaart door de Witte Brug van de Gelderse straat (Draaibrug)
 
 Aak aangemeerd voor de Witte brug
 
+![](images/turfgraven-2/zeilschip_laden.jpeg)
+
 ![Pas gegraven wijk met turfbulten](images/turfgraven-2/Pasgegraven_wijk_met_op_achtergrond_turfbulten.jpg)
 
 Pas gegraven wijk met turfbulten
