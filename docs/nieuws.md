@@ -2,6 +2,4 @@
 
 > Bron: helenaveenvantoen.nl
 
-## Korte nieuwsberichten
-
-Herdenking bevrijders HelenaveenOnderhoudsmiddag Memori op 1 november
+Klik hier voor openingstijden en nieuws van het Helenaveen van Toen Huis
